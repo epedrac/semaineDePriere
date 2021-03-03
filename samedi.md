@@ -12,7 +12,7 @@ Vous le savez vous-mêmes, Philippiens, au début de la prédication de l'Evangi
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditatition
+# Méditation
 
 Dans ce texte, Paul nous parle de sa joie dans un domaine précis de sa vie.
 Lequel ?

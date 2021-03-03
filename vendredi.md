@@ -17,7 +17,7 @@ Si en effet nous vivons dans la réalité humaine, nous ne combattons pas de fa�
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditatition
+# Méditation
 
 Qu’apprenons-nous dans ces deux textes concernant la relation qu’il y a entre nos pensées et la joie ?
 
