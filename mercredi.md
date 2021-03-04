@@ -1,4 +1,5 @@
 # Mercredi 17 - La joie du Seigneur en toi, va attirer le monde à Christ.
+![alt text](images/SDP-Mercredi.png "Mercredi 17 - La joie du Seigneur en toi, va attirer le monde à Christ.")
 
 ## Matthieu 5:1-16
 
