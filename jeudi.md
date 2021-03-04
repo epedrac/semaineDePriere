@@ -1,7 +1,6 @@
-## Jeudi 18
-## L’intimité avec Dieu produit la joie
+# Jeudi 18 - L’intimité avec Dieu produit la joie
 
-# Psaume 16
+## Psaume 16
 
 Hymne de David.
 Garde-moi, ô Dieu, car je cherche refuge en toi!
@@ -19,11 +18,11 @@ Tu me fais connaître le sentier de la vie; il y a d'abondantes joies dans ta pr
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditons
+## Méditons
 
 Dans quelles circonstances ce psaume a-t-il été écrit ? Sur quoi est basée l’espérance de David ?
 
-# Approfondissons
+## Approfondissons
 
 David a vécu dans sa vie des moments difficiles, allant jusqu’à perdre des enfants. La perte de notre santé, d’une personne qui nous est chère, la perte d’une sécurité … tout cela peut-être à l’origine de notre quête de Dieu. Mais c’est dans l’intimité de notre communion avec Dieu que nous serons exposés à la vraie joie.
 
@@ -53,7 +52,7 @@ Une sorte de transfert a alors lieu entre le ciel et la terre.
 
 Choisis la présence de Dieu, tu seras rayonnant de joie !
 
-# Et si on priait ?
+## Et si on priait ?
 
 Prions que le Saint-Esprit nous aide à faire le point concernant notre vie et permette que nous ayons un regard lucide sur nos priorités.
 

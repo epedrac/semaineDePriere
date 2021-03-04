@@ -1,14 +1,13 @@
-## Vendredi 19
-## La qualité de tes pensées est en lien avec ta joie
+# Vendredi 19 - La qualité de tes pensées est en lien avec ta joie
 
-# Romains 12 : 1-2
+## Romains 12 : 1-2
 
 Je vous encourage donc, frères et sœurs, par les compassions de Dieu, à offrir votre corps comme un sacrifice vivant, saint, agréable à Dieu. Ce sera de votre part un culte raisonnable. Ne vous conformez pas au monde actuel, mais soyez transformés par le renouvellement de l'intelligence afin de discerner quelle est la volonté de Dieu, ce qui est bon, agréable et parfait.
 
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# 2 Corinthiens 10:1-5
+## 2 Corinthiens 10:1-5
 
 Moi Paul, je vous adresse un appel par la douceur et la bonté de Christ, moi qui suis humble quand je suis parmi vous mais plein de hardiesse envers vous quand je suis loin: je vous en prie, ne me forcez pas, lorsque je serai présent, à recourir avec hardiesse à l'assurance dont je compte faire preuve contre quelques-uns, contre ceux qui estiment que nous nous conduisons de façon purement humaine.
 
@@ -17,11 +16,11 @@ Si en effet nous vivons dans la réalité humaine, nous ne combattons pas de fa�
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditation
+## Méditation
 
 Qu’apprenons-nous dans ces deux textes concernant la relation qu’il y a entre nos pensées et la joie ?
 
-# Approfondissons
+## Approfondissons
 
 On ne peut entretenir des pensées noires, négatives et vivre la joie. De la même manière, une personne joyeuse ne peut être remplie de pensées sombres.
 
@@ -47,7 +46,7 @@ Si Dieu l’a dit, alors c’est ce que je décide de croire.
 
 En collaboration avec le Saint-Esprit, amène ces pensées pessimistes et décourageantes, captives à l’obéissance de Christ, et ta joie va déborder.
 
-# Et si on priait ?
+## Et si on priait ?
 
 Merci Seigneur de me proposer un autre style de pensées. Aide-moi à discerner les moments où il y a infiltration de pensées toxiques afin que je réagisse de la bonne manière.
 

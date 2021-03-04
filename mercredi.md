@@ -1,7 +1,6 @@
-## Mercredi 17
-## La joie du Seigneur en toi, va attirer le monde à Christ.
+# Mercredi 17 - La joie du Seigneur en toi, va attirer le monde à Christ.
 
-# Matthieu 5:1-16
+## Matthieu 5:1-16
 
 A la vue de ces foules, Jésus monta sur la montagne. Il s'assit et ses disciples s'approchèrent de lui. Puis il prit la parole pour les enseigner; il dit:
 «Heureux ceux qui reconnaissent leur pauvreté spirituelle, car le royaume des cieux leur appartient! Heureux ceux qui pleurent, car ils seront consolés! Heureux ceux qui sont doux, car ils hériteront la terre! Heureux ceux qui ont faim et soif de la justice, car ils seront rassasiés! Heureux ceux qui font preuve de bonté, car on aura de la bonté pour eux! Heureux ceux qui ont le cœur pur, car ils verront Dieu! Heureux ceux qui procurent la paix, car ils seront appelés fils de Dieu! Heureux ceux qui sont persécutés pour la justice, car le royaume des cieux leur appartient! Heureux serez-vous lorsqu'on vous insultera, qu'on vous persécutera et qu'on dira faussement de vous toute sorte de mal à cause de moi. Réjouissez-vous et soyez dans l'allégresse, parce que votre récompense sera grande au ciel. En effet, c'est ainsi qu'on a persécuté les prophètes qui vous ont précédés.
@@ -11,11 +10,11 @@ Vous êtes le sel de la terre. Mais si le sel perd sa saveur, avec quoi la lui r
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditons
+## Méditons
 
 Jésus nous rappelle au travers des versets 11-12, que nos circonstances pourraient être terribles, mais ce qui est important c’est POUR QUI et A CAUSE DE QUI nous vivons cela.
 
-# Approfondissons
+## Approfondissons
 
 La joie de Dieu est pour toi, mais elle t’est aussi donnée pour bénir les autres. Et ce monde a désespérément faim et soif de vraie joie.
 
@@ -41,7 +40,7 @@ Repoussons l'obscurité du désespoir par la joie de Dieu qui va attirer le mond
 
 Choisis la joie et brille Jésus autour de toi.
 
-# Et si on priait ?
+## Et si on priait ?
 
 Prions que Dieu nous fortifie par Son Esprit, Il nous a promit une puissance pour le témoignage (Ac.1:8), pas un pétard mouillé, prions, demandons 
 

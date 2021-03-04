@@ -1,7 +1,6 @@
-## Lundi 15
-## Où trouver la vraie joie ?
+# Lundi 15 - Où trouver la vraie joie ?
 
-# Romains 8:18-39
+## Romains 8:18-39
 
 J'estime que les souffrances du moment présent ne sont pas dignes d'être comparées à la gloire qui va être révélée pour nous. De fait, la création attend avec un ardent désir la révélation des fils de Dieu. En effet, la création a été soumise à l'inconsistance, non de son propre gré, mais à cause de celui qui l'y a soumise. Toutefois, elle a l'espérance d'être elle aussi libérée de l'esclavage de la corruption pour prendre part à la glorieuse liberté des enfants de Dieu. Or nous savons que, jusqu'à maintenant, la création tout entière soupire et souffre les douleurs de l'accouchement. Et ce n'est pas elle seule qui soupire, mais nous aussi, qui avons pourtant dans l'Esprit un avant-goût de cet avenir, nous soupirons en nous-mêmes en attendant l'adoption, la libération de notre corps. En effet, c'est en espérance que nous avons été sauvés. Or l'espérance qu'on voit n'est plus de l'espérance: ce que l'on voit, peut-on l'espérer encore? Mais si nous espérons ce que nous ne voyons pas, nous l'attendons avec persévérance.
 
@@ -16,11 +15,11 @@ Au contraire, dans tout cela nous sommes plus que vainqueurs grâce à celui qui
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditons
+## Méditons
 
 Après avoir lu le texte de Paul, reprenez-le et relevez toutes les raisons de votre espérance. Ces raisons devraient renouveler votre joie.
 
-# Approfondissons
+## Approfondissons
 
 Beaucoup de gens aujourd’hui cherchent à combler le vide de leur coeur et à vivre plus de joie, d’excitation au travers de tout un tas d’expériences et d’actions. On court à la recherche du bonheur et cependant, il semblerait que la joie et le rire se fassent de plus en plus rares autour de nous. Se pourrait-il que nous cherchions la joie profonde au mauvais endroit ?
 
@@ -41,7 +40,7 @@ Romains 14 :17 « Car le Royaume de Dieu ce n’est pas le manger et le boire, m
 Ainsi, je t’invite à faire cette prière toute simple à ce Dieu, qui ne se lasse pas de nous remplir :
 « Seigneur, j’ai cherché partout, longtemps, mais mon coeur est vide et aride, remplis-moi de ta joie. Sois ma force en toutes circonstances. Seigneur, augmente ma foi afin que je puisse te voir en toutes situations, agissant avec puissance en ma faveur, et que cette prise de conscience génère en moi une joie débordante. Car avec toi, mon Seigneur, tout est possible ! »
 
-# Et si on priait ?
+## Et si on priait ?
 
 Prions pour que nous comprennions cette mesure de grâce que Dieu nous a faite en Jésus-Christ et lorsque nous entendons des paroles qui nous accusent, nous prennions position avec l’autorité que nous avons reçu.
 Relisez le verset 37.

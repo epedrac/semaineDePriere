@@ -1,7 +1,7 @@
-## Dimanche 14
-## Les bienfaits de la joie
+# Dimanche 14 - Les bienfaits de la joie
+![alt text](images/SDP-Dimanche.png "Dimanche 14 - Les bienfaits de la joie")
 
-# Philippiens 4:1-9
+## Philippiens 4:1-9
 
 C'est pourquoi, mes très chers frères et sœurs que je désire tant revoir, vous qui êtes ma joie et ma couronne, tenez ferme dans le Seigneur, mes bien-aimés!
 
@@ -15,11 +15,11 @@ Enfin, frères et sœurs, portez vos pensées sur tout ce qui est vrai, tout ce 
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditons
+## Méditons
 
 Après avoir lu le texte de ce texte, quelle est votre réaction spontanée ?
 
-# Approfondissons
+## Approfondissons
 
 Comme pour Paul, la joie est une force puissante dans nos vies.
 
@@ -48,7 +48,7 @@ C’est pour cela qu’il est important de rechercher la joie au bon endroit. Ne
 
 Le Seigneur Jésus a promis que la joie qu’Il a en réserve pour toi est toujours disponible, et que nul ne pourra te la ravir (Jean 16).
 
-# Et si on priait ?
+## Et si on priait ?
 
 Apportons au Seigneur, dans l’esprit du texte de Philippiens, ce qui nous semble lourd en ce moment. Demandons Lui un renouvellement de notre joie et de notre paix.
 

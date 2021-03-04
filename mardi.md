@@ -1,7 +1,6 @@
-## Mardi 16
-## La joie du Seigneur ne dépend pas des circonstances
+# Mardi 16 - La joie du Seigneur ne dépend pas des circonstances
 
-# Actes 16:16-40
+## Actes 16:16-40
 
 Alors que nous nous rendions au lieu de prière, une jeune esclave qui avait un esprit de divination est venue à notre rencontre. Par ses prédictions, elle procurait un grand profit à ses maîtres. Elle s'est mise à nous suivre, Paul et nous, en criant: «Ces hommes sont les serviteurs du Dieu très-haut et ils nous annoncent le chemin du salut.» Elle a fait cela pendant plusieurs jours. Paul, agacé, s'est retourné et a dit à l'esprit: «Je t'ordonne, au nom de Jésus-Christ, de sortir d'elle.» Il est sorti au moment même.
 
@@ -14,12 +13,12 @@ Quand il a fait jour, les juges ont envoyé leurs agents dire au gardien de la p
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditons
+## Méditons
 
 Mettez-vous à la place de Paul et Silas en revivant cet épisode de leur vie.
 Qu’est-ce qui d’après vous, a fait que Paul et Silas ont loué Dieu au milieu de la nuit, plutôt que de se lamenter sur eux-même ?
 
-# Approfondissons
+## Approfondissons
 
 Être rempli de cette joie qui vient de Dieu ne signifie pas que tout est parfait dans nos vies. Il y aura toujours une part d’ombre, de choses qui vont bien et d’autres qui sont difficiles dans notre existence.
 
@@ -45,7 +44,7 @@ Habacuc 3 :17 : « Car le figuier ne fleurira pas, La vigne ne produira rien, Le
 
 Choisis la joie !
 
-# Et si on priait ?
+## Et si on priait ?
 
 Tout est grâce. Disons à Dieu notre reconnaissance pour Sa présence dans ma vie… même lorsque nous passons par des temps de tempête.
 

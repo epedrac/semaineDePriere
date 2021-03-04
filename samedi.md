@@ -1,7 +1,6 @@
-## Samedi 20
-## Pour garder ta joie, garde tes yeux fixés sur les bonnes choses
+# Samedi 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses
 
-# Philipiens 4:8-20
+## Philipiens 4:8-20
 
 Enfin, frères et sœurs, portez vos pensées sur tout ce qui est vrai, tout ce qui est honorable, tout ce qui est juste, tout ce qui est pur, tout ce qui est digne d'être aimé, tout ce qui mérite l'approbation, ce qui est synonyme de qualité morale et ce qui est digne de louange. Ce que vous avez appris, reçu et entendu de moi et ce que vous avez vu en moi, mettez-le en pratique. Et le Dieu de la paix sera avec vous.
 
@@ -12,12 +11,12 @@ Vous le savez vous-mêmes, Philippiens, au début de la prédication de l'Evangi
 Bible d'étude Segond 21
 © 2007 Société Biblique de Genève
 
-# Méditation
+## Méditation
 
 Dans ce texte, Paul nous parle de sa joie dans un domaine précis de sa vie.
 Lequel ?
 
-# Approfondissons
+## Approfondissons
 
 Ce sur quoi nous braquons notre attention devient prééminent dans notre vie.
 
