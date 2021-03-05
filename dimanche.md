@@ -1,4 +1,3 @@
-# Dimanche 14 - Les bienfaits de la joie
 ![alt text](images/SDP-Dimanche.png "Dimanche 14 - Les bienfaits de la joie")
 
 ## Philippiens 4:1-9
