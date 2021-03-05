@@ -18,17 +18,17 @@ Majdling.
 
 # Programme
 
-Dimanche 14 - Les bienfaits de la joie
 - [Dimanche](dimanche.md)
-Lundi 15 - Où trouver la vraie joie ?
+ 14 - Les bienfaits de la joie
 - [Lundi](lundi.md)
-Mardi 16 - La joie du Seigneur ne dépend pas des circonstances
+ 15 - Où trouver la vraie joie ?
 - [Mardi](mardi.md)
-Mercredi 17 - La joie du Seigneur en toi, va attirer le monde à Christ.
+ 16 - La joie du Seigneur ne dépend pas des circonstances
 - [Mercredi](mercredi.md)
-Jeudi 18 - L’intimité avec Dieu produit la joie
+ 17 - La joie du Seigneur en toi, va attirer le monde à Christ.
 - [Jeudi](jeudi.md)
-Vendredi 19 - La qualité de tes pensées est en lien avec ta joie
+ 18 - L’intimité avec Dieu produit la joie
 - [Vendredi](vendredi.md)
-Samedi 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses
+ 19 - La qualité de tes pensées est en lien avec ta joie
 - [Samedi](samedi.md)
+ 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses
