@@ -67,5 +67,10 @@ Ces dernières semaines, des frères et soeurs ont passé des temps de maladie, 
 Seigneur, que dans ce temps de pandémie si difficile dans le domaine des relations humaines, nous puissions néanmoins nous rapprocher les uns des autres et ressortir plus forts après. Accompagne particulièrement les enfants et les jeunes dans cette période.
 </p>
 
+<div class="container">
+<iframe src="https://www.youtube.com/watch?v=8jn77-Ovqdk" 
+frameborder="0" allowfullscreen class="video"></iframe>
+</div>
+
 [Jour précédent - Lundi 15](lundi.md)<br/> <> <br/>
 [Jour suivant - Mercredi 17](mercredi.md)

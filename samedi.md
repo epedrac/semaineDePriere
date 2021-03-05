@@ -57,5 +57,10 @@ Couche toi le soir en énumérant les 5 choses pour lesquelles tu peux être rec
 Choisis la joie car <i>« la joie du Seigneur, c’est ta force »</i>.
 </p>
 
+<div class="container">
+<iframe src="https://www.youtube.com/watch?v=euO5xW3wKFQ" 
+frameborder="0" allowfullscreen class="video"></iframe>
+</div>
+
 [Jour précédent - Vendredi 19](vendredi.md)<br/> <> <br/>
 [Jour suivant](jours.md)

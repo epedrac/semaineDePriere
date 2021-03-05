@@ -72,5 +72,10 @@ Prions pour le secteur enfance et jeunesse de l’église, afin que le vécu dan
 Prions pour un affermissement de la foi chez les jeunes en préparation au baptême.
 </p>
 
+<div class="container">
+<iframe src="https://www.youtube.com/watch?v=IokcIvRygKo" 
+frameborder="0" allowfullscreen class="video"></iframe>
+</div>
+
 [Jour précédent](jours.md)<br/> <> <br/>
 [Jour suivant - Lundi 15](lundi.md)
