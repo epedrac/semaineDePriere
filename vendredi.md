@@ -55,5 +55,5 @@ Aide-moi Seigneur à nourrir mes pensées de la bonne manière, que je puisse me
 
 Aide-nous Seigneur à vivre l’Eglise avec cette force et ce renouvellement.
 
-[Jour précédent - Jeudi 18](jeudi.md)
+[Jour précédent - Jeudi 18](jeudi.md) <>
 [Jour suivant - Samedi 20](samedi.md)
