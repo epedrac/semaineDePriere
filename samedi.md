@@ -1,5 +1,5 @@
 # Samedi 20
-![alt text](images/SDP-Samedi.png "Samedi 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses")
+![alt text](images/SDP-Samedi-2.png "Samedi 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses")
 
 <br/>
 <center><h2>Philipiens 4:8-20</h2></center>

@@ -1,5 +1,5 @@
 # Mardi 16
-![alt text](images/SDP-Mardi.png "Mardi 16 - La joie du Seigneur ne dépend pas des circonstances")
+![alt text](images/SDP-Mardi-2.png "Mardi 16 - La joie du Seigneur ne dépend pas des circonstances")
 
 <br/>
 <center><h2>Actes 16:16-40</h2></center>

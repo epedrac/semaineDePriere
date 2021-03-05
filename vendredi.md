@@ -1,5 +1,5 @@
 # Vendredi 19
-![alt text](images/SDP-Vendredi.png "Vendredi 19 - La qualité de tes pensées est en lien avec ta joie")
+![alt text](images/SDP-Vendredi-2.png "Vendredi 19 - La qualité de tes pensées est en lien avec ta joie")
 
 <br/>
 <center><h2>Romains 12 : 1-2</h2></center>

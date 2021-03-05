@@ -1,5 +1,5 @@
 # Dimanche 14
-![alt text](images/SDP-Dimanche.png "Dimanche 14 - Les bienfaits de la joie")
+![alt text](images/SDP-Dimanche-2.png "Dimanche 14 - Les bienfaits de la joie")
 
 <br/>
 <center><h2>Philippiens 4:1-9</h2></center>

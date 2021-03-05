@@ -1,5 +1,5 @@
 # Mercredi 17
-![alt text](images/SDP-Mercredi.png "Mercredi 17 - La joie du Seigneur en toi, va attirer le monde à Christ.")
+![alt text](images/SDP-Mercredi-2.png "Mercredi 17 - La joie du Seigneur en toi, va attirer le monde à Christ.")
 
 <br/>
 <center><h2>Matthieu 5:1-16</h2></center>

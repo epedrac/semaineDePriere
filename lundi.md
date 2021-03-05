@@ -1,5 +1,5 @@
 # Lundi 15
-![alt text](images/SDP-Lundi.png "Lundi 15 - Où trouver la vraie joie ?")
+![alt text](images/SDP-Lundi-2.png "Lundi 15 - Où trouver la vraie joie ?")
 
 <br/>
 <center><h2>Romains 8:18-39</h2></center>

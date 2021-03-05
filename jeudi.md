@@ -1,5 +1,5 @@
 # Jeudi 18
-![alt text](images/SDP-Jeudi.png "Jeudi 18 - L’intimité avec Dieu produit la joie")
+![alt text](images/SDP-Jeudi-2.png "Jeudi 18 - L’intimité avec Dieu produit la joie")
 
 <br/>
 <center><h2>Psaume 16</h2></center>
