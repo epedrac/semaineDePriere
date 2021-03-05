@@ -65,7 +65,5 @@ Demandons à Dieu que notre désir soit que Sa gloire soit manifestée dans notr
 Prions pour les frères et soeurs découragés dans leur foi, qu’ils soient visités par Dieu afin que leurs désirs, leur volonté soient orientés vers Jésus.
 </p>
 
-<p align="center">
 [Jour précédent - Mardi 16](mardi.md)<br/> <> <br/>
 [Jour suivant - Jeudi 18](jeudi.md)
-</p>

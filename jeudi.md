@@ -73,7 +73,5 @@ Prions que le Saint-Esprit nous aide à faire le point concernant notre vie et p
 Autour de nous, nous avons des connaissances (famille, amis, collègues …) qui ont peut-être vécu des pertes : personnes proches, travail ... Demandons à Dieu de pouvoir être porteur de paroles d’encouragements.
 </p>
 
-<p align="center">
 [Jour précédent - Mercredi 17](mercredi.md)<br/> <> <br/>
 [Jour suivant - Vendredi 19](vendredi.md)
-</p>

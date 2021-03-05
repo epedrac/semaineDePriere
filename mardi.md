@@ -49,9 +49,9 @@ Peut-être traverses-tu un moment difficile, particulièrement en ces temps de c
 J’aimerais te dire, que ton Seigneur le sait, Il voit, Il est au courant et Il a promis qu’Il ne t’abandonnera jamais, jusqu’à la fin du monde Il sera à tes côtés.
 <br/><br/>
 <b>Si tu choisis la joie en Lui faisant confiance, cette joie sera ta force et tu seras victorieux.</b>
-
+<br/><br/>
 Habacuc 3 :17 : <i>« Car le figuier ne fleurira pas, La vigne ne produira rien, Le fruit de l'olivier manquera, Les champs ne donneront pas de nourriture; Les brebis disparaîtront du pâturage, Et il n'y aura plus de boeufs dans les étables. Toutefois, je veux me réjouir en l'Eternel, Je veux me réjouir dans le Dieu de mon salut ».</i>
-
+<br/><br/>
 Choisis la joie !
 </p>
 
@@ -67,7 +67,5 @@ Ces dernières semaines, des frères et soeurs ont passé des temps de maladie, 
 Seigneur, que dans ce temps de pandémie si difficile dans le domaine des relations humaines, nous puissions néanmoins nous rapprocher les uns des autres et ressortir plus forts après. Accompagne particulièrement les enfants et les jeunes dans cette période.
 </p>
 
-<p align="center">
 [Jour précédent - Lundi 15](lundi.md)<br/> <> <br/>
 [Jour suivant - Mercredi 17](mercredi.md)
-</p>

@@ -63,7 +63,5 @@ Prions pour que cette joie, que nous avons trouvé en Dieu puisse se voir et s�
 Prions que nos voisins, étudiants ou collègues de travail puissent connaître l’amour de Dieu, manifesté en Jésus-Christ.
 </p>
 
-<p align="center">
 [Jour précédent - Dimanche 14](dimanche.md)<br/> <> <br/>
 [Jour suivant - Mardi 16](mardi.md)
-</p>

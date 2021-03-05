@@ -43,11 +43,11 @@ Dieu nous a créés pour la joie et Il a imaginé cette magnifique émotion pour
 <br/><br/>
 L’apôtre Paul nous rappelle comme une recommandation dans Philippiens 4:4 <i>« Réjouissez-vous dans le Seigneur, je le répète réjouissez-vous… ne vous inquiétez de rien »</i>. Nous voyons l’insistance de Paul qui oppose la joie dans  le Seigneur aux inquiétudes.
 <br/><br/>
-La Bible mentionne différents types de joies :
-* La joie naturelle (contentement, satisfaction, gaieté)
-* La joie morale (paix, sérénité)
-* La joie spirituelle, que l’on appelle également « la joie du Seigneur ». Elle
-nous vient de Dieu et elle est voulue par Lui pour être notre force.
+La Bible mentionne différents types de joies :<br/>
+* La joie naturelle (contentement, satisfaction, gaieté)<br/>
+* La joie morale (paix, sérénité)<br/>
+* La joie spirituelle, que l’on appelle également « la joie du Seigneur ». <br/>
+Elle nous vient de Dieu et elle est voulue par Lui pour être notre force.
 <br/><br/>
 Néhémie la connaissait : <i>« La joie du Seigneur est ma force »</i> disait-il (Né. 8 :10)
 <br/><br/>
@@ -72,7 +72,5 @@ Prions pour le secteur enfance et jeunesse de l’église, afin que le vécu dan
 Prions pour un affermissement de la foi chez les jeunes en préparation au baptême.
 </p>
 
-<p align="center">
 [Jour précédent](jours.md)<br/> <> <br/>
 [Jour suivant - Lundi 15](lundi.md)
-</P>
