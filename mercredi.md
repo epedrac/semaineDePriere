@@ -8,14 +8,14 @@ A la vue de ces foules, Jésus monta sur la montagne. Il s'assit et ses disciple
 
 Vous êtes le sel de la terre. Mais si le sel perd sa saveur, avec quoi la lui rendra-t-on? Il ne sert plus qu'à être jeté dehors et piétiné par les hommes. Vous êtes la lumière du monde. Une ville située sur une montagne ne peut pas être cachée, et on n'allume pas non plus une lampe pour la mettre sous un seau, mais on la met sur son support et elle éclaire tous ceux qui sont dans la maison. Que, de la même manière, votre lumière brille devant les hommes afin qu'ils voient votre belle manière d'agir et qu'ainsi ils célèbrent la gloire de votre Père céleste.
 
-Bible d'étude Segond 21
-© 2007 Société Biblique de Genève
+<i>Bible d'étude Segond 21<br />
+© 2007 Société Biblique de Genève</i>
 
-## Méditons
+<center><h2>Méditons</h2></center>
 
 Jésus nous rappelle au travers des versets 11-12, que nos circonstances pourraient être terribles, mais ce qui est important c’est POUR QUI et A CAUSE DE QUI nous vivons cela.
 
-## Approfondissons
+<center><h2>Approfondissons</h2></center>
 
 La joie de Dieu est pour toi, mais elle t’est aussi donnée pour bénir les autres. Et ce monde a désespérément faim et soif de vraie joie.
 
@@ -41,7 +41,7 @@ Repoussons l'obscurité du désespoir par la joie de Dieu qui va attirer le mond
 
 Choisis la joie et brille Jésus autour de toi.
 
-## Et si on priait ?
+<center><h2>Et si on priait ?</h2></center>
 
 Prions que Dieu nous fortifie par Son Esprit, Il nous a promit une puissance pour le témoignage (Ac.1:8), pas un pétard mouillé, prions, demandons 
 

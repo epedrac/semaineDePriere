@@ -16,14 +16,14 @@ C'est pourquoi mon cœur est dans la joie, et mon esprit dans l'allégresse.
 Même mon corps reposera en sécurité,car tu n'abandonneras pas mon âme au séjour des morts, tu ne permettras pas que ton bien-aimé connaisse la décomposition.
 Tu me fais connaître le sentier de la vie; il y a d'abondantes joies dans ta présence, un bonheur éternel à ta droite.
 
-Bible d'étude Segond 21
-© 2007 Société Biblique de Genève
+<i>Bible d'étude Segond 21<br />
+© 2007 Société Biblique de Genève</i>
 
-## Méditons
+<center><h2>Méditons</h2></center>
 
 Dans quelles circonstances ce psaume a-t-il été écrit ? Sur quoi est basée l’espérance de David ?
 
-## Approfondissons
+<center><h2>Approfondissons</h2></center>
 
 David a vécu dans sa vie des moments difficiles, allant jusqu’à perdre des enfants. La perte de notre santé, d’une personne qui nous est chère, la perte d’une sécurité … tout cela peut-être à l’origine de notre quête de Dieu. Mais c’est dans l’intimité de notre communion avec Dieu que nous serons exposés à la vraie joie.
 
@@ -53,7 +53,7 @@ Une sorte de transfert a alors lieu entre le ciel et la terre.
 
 Choisis la présence de Dieu, tu seras rayonnant de joie !
 
-## Et si on priait ?
+<center><h2>Et si on priait ?</h2></center>
 
 Prions que le Saint-Esprit nous aide à faire le point concernant notre vie et permette que nous ayons un regard lucide sur nos priorités.
 

@@ -12,14 +12,14 @@ Ne vous inquiétez de rien, mais en toute chose faites connaître vos besoins à
 
 Enfin, frères et sœurs, portez vos pensées sur tout ce qui est vrai, tout ce qui est honorable, tout ce qui est juste, tout ce qui est pur, tout ce qui est digne d'être aimé, tout ce qui mérite l'approbation, ce qui est synonyme de qualité morale et ce qui est digne de louange. Ce que vous avez appris, reçu et entendu de moi et ce que vous avez vu en moi, mettez-le en pratique. Et le Dieu de la paix sera avec vous.
 
-Bible d'étude Segond 21
-© 2007 Société Biblique de Genève
+<i>Bible d'étude Segond 21<br />
+© 2007 Société Biblique de Genève</i>
 
-## Méditons
+<center><h2>Méditons</h2></center>
 
 Après avoir lu le texte de ce texte, quelle est votre réaction spontanée ?
 
-## Approfondissons
+<center><h2>Approfondissons</h2></center>
 
 Comme pour Paul, la joie est une force puissante dans nos vies.
 
@@ -48,7 +48,7 @@ C’est pour cela qu’il est important de rechercher la joie au bon endroit. Ne
 
 Le Seigneur Jésus a promis que la joie qu’Il a en réserve pour toi est toujours disponible, et que nul ne pourra te la ravir (Jean 16).
 
-## Et si on priait ?
+<center><h2>Et si on priait ?</h2></center>
 
 Apportons au Seigneur, dans l’esprit du texte de Philippiens, ce qui nous semble lourd en ce moment. Demandons Lui un renouvellement de notre joie et de notre paix.
 

@@ -11,15 +11,15 @@ Vers le milieu de la nuit, Paul et Silas priaient et chantaient les louanges de 
 
 Quand il a fait jour, les juges ont envoyé leurs agents dire au gardien de la prison: «Relâche ces hommes.» Le gardien a rapporté ces paroles à Paul: «Les juges ont fait dire de vous relâcher. Sortez donc maintenant et partez dans la paix!» Mais Paul a dit aux agents: «Après nous avoir fait battre en public et sans jugement alors que nous sommes romains, ils nous ont jetés en prison, et maintenant ils nous feraient sortir en secret? Il n'en est pas question. Qu'ils viennent eux-mêmes nous remettre en liberté!» Les agents ont rapporté ces paroles aux juges, qui ont été effrayés en apprenant que Paul et Silas étaient romains. Ils sont venus leur présenter des excuses et les ont libérés en leur demandant de quitter la ville. Une fois sortis de la prison, ils sont entrés chez Lydie et, après avoir vu et encouragé les frères et sœurs, ils sont partis.
 
-Bible d'étude Segond 21
-© 2007 Société Biblique de Genève
+<i>Bible d'étude Segond 21<br />
+© 2007 Société Biblique de Genève</i>
 
-## Méditons
+<center><h2>Méditons</h2></center>
 
 Mettez-vous à la place de Paul et Silas en revivant cet épisode de leur vie.
 Qu’est-ce qui d’après vous, a fait que Paul et Silas ont loué Dieu au milieu de la nuit, plutôt que de se lamenter sur eux-même ?
 
-## Approfondissons
+<center><h2>Approfondissons</h2></center>
 
 Être rempli de cette joie qui vient de Dieu ne signifie pas que tout est parfait dans nos vies. Il y aura toujours une part d’ombre, de choses qui vont bien et d’autres qui sont difficiles dans notre existence.
 
@@ -45,7 +45,7 @@ Habacuc 3 :17 : « Car le figuier ne fleurira pas, La vigne ne produira rien, Le
 
 Choisis la joie !
 
-## Et si on priait ?
+<center><h2>Et si on priait ?</h2></center>
 
 Tout est grâce. Disons à Dieu notre reconnaissance pour Sa présence dans ma vie… même lorsque nous passons par des temps de tempête.
 

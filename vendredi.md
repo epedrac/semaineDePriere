@@ -5,8 +5,8 @@
 
 Je vous encourage donc, frères et sœurs, par les compassions de Dieu, à offrir votre corps comme un sacrifice vivant, saint, agréable à Dieu. Ce sera de votre part un culte raisonnable. Ne vous conformez pas au monde actuel, mais soyez transformés par le renouvellement de l'intelligence afin de discerner quelle est la volonté de Dieu, ce qui est bon, agréable et parfait.
 
-Bible d'étude Segond 21
-© 2007 Société Biblique de Genève
+<i>Bible d'étude Segond 21<br />
+© 2007 Société Biblique de Genève</i>
 
 ## 2 Corinthiens 10:1-5
 
@@ -14,14 +14,14 @@ Moi Paul, je vous adresse un appel par la douceur et la bonté de Christ, moi qu
 
 Si en effet nous vivons dans la réalité humaine, nous ne combattons pas de façon purement humaine. En effet, les armes avec lesquelles nous combattons ne sont pas humaines, mais elles sont puissantes, grâce à Dieu, pour renverser des forteresses. Nous renversons les raisonnements et tout obstacle qui s'élève avec orgueil contre la connaissance de Dieu, et nous faisons toute pensée prisonnière pour qu'elle obéisse à Christ.
 
-Bible d'étude Segond 21
-© 2007 Société Biblique de Genève
+<i>Bible d'étude Segond 21<br />
+© 2007 Société Biblique de Genève</i>
 
-## Méditation
+<center><h2>Méditons</h2></center>
 
 Qu’apprenons-nous dans ces deux textes concernant la relation qu’il y a entre nos pensées et la joie ?
 
-## Approfondissons
+<center><h2>Approfondissons</h2></center>
 
 On ne peut entretenir des pensées noires, négatives et vivre la joie. De la même manière, une personne joyeuse ne peut être remplie de pensées sombres.
 
@@ -47,7 +47,7 @@ Si Dieu l’a dit, alors c’est ce que je décide de croire.
 
 En collaboration avec le Saint-Esprit, amène ces pensées pessimistes et décourageantes, captives à l’obéissance de Christ, et ta joie va déborder.
 
-## Et si on priait ?
+<center><h2>Et si on priait ?</h2></center>
 
 Merci Seigneur de me proposer un autre style de pensées. Aide-moi à discerner les moments où il y a infiltration de pensées toxiques afin que je réagisse de la bonne manière.
 

@@ -9,15 +9,15 @@ J'ai éprouvé une grande joie dans le Seigneur de ce que vous avez enfin pu ren
 
 Vous le savez vous-mêmes, Philippiens, au début de la prédication de l'Evangile, lorsque j'ai quitté la Macédoine, aucune Eglise n'a pris part avec moi à un tel échange de contributions. Vous avez été les seuls à le faire: à Thessalonique déjà, et à plus d'une reprise, vous m'avez envoyé de quoi pourvoir à mes besoins. Ce n'est pas que je recherche les dons, mais je désire qu'un fruit abondant soit porté sur votre compte. J'ai tout reçu et je suis dans l'abondance. J'ai été comblé en recevant d'Epaphrodite ce que vous m'avez envoyé comme un parfum de bonne odeur, un sacrifice que Dieu accepte et qui lui est agréable. Et mon Dieu pourvoira à tous vos besoins conformément à sa richesse, avec gloire, en Jésus-Christ. A notre Dieu et Père soit la gloire aux siècles des siècles! Amen!
 
-Bible d'étude Segond 21
-© 2007 Société Biblique de Genève
+<i>Bible d'étude Segond 21<br />
+© 2007 Société Biblique de Genève</i>
 
-## Méditation
+<center><h2>Méditons</h2></center>
 
 Dans ce texte, Paul nous parle de sa joie dans un domaine précis de sa vie.
 Lequel ?
 
-## Approfondissons
+<center><h2>Approfondissons</h2></center>
 
 Ce sur quoi nous braquons notre attention devient prééminent dans notre vie.
 
