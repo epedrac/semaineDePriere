@@ -1,6 +1,6 @@
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
-# Programme
+<center><h1>Je participe en ligne</h1></center>
 
 - [Dimanche](dimanche.md)
  14 - Les bienfaits de la joie
@@ -16,3 +16,20 @@
  19 - La qualité de tes pensées est en lien avec ta joie
 - [Samedi](samedi.md)
  20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses
+ 
+<center><h1>Je participe avec les autres</h1></center>
+
+- Dimanche 14 Mars, 10H15<br/>
+Culte de louange
+
+- Mardi 16 Mars, 20H00-22H00<br/>
+Soirée plénière sur Zoom
+
+- Jeudi 18 OU Vendredi 19 Mars, 20H15 -22H00<br/>
+Prière dans les groupes de maison sur Zoom
+
+- Samedi 20 mars, APRÈS-MIDI<br/>
+Balades par petits groupes, en respectant les consignes sanitaires
+
+- Dimanche 21 mars, 10h15<br/>
+Culte
