@@ -1,4 +1,4 @@
-# Jeudi 18 - L’intimité avec Dieu produit la joie
+# Jeudi 18
 ![alt text](images/SDP-Jeudi.png "Jeudi 18 - L’intimité avec Dieu produit la joie")
 
 ## Psaume 16

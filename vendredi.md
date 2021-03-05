@@ -1,4 +1,4 @@
-# Vendredi 19 - La qualité de tes pensées est en lien avec ta joie
+# Vendredi 19
 ![alt text](images/SDP-Vendredi.png "Vendredi 19 - La qualité de tes pensées est en lien avec ta joie")
 
 ## Romains 12 : 1-2

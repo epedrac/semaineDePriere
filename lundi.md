@@ -1,4 +1,4 @@
-# Lundi 15 - Où trouver la vraie joie ?
+# Lundi 15
 ![alt text](images/SDP-Lundi.png "Lundi 15 - Où trouver la vraie joie ?")
 
 ## Romains 8:18-39

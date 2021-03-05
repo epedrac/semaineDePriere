@@ -1,4 +1,4 @@
-# Mardi 16 - La joie du Seigneur ne dépend pas des circonstances
+# Mardi 16
 ![alt text](images/SDP-Mardi.png "Mardi 16 - La joie du Seigneur ne dépend pas des circonstances")
 
 ## Actes 16:16-40

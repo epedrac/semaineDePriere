@@ -1,4 +1,4 @@
-# Samedi 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses
+# Samedi 20
 ![alt text](images/SDP-Samedi.png "Samedi 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses")
 
 ## Philipiens 4:8-20
