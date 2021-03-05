@@ -49,3 +49,6 @@ Relisez le verset 37.
 Prions pour que cette joie, que nous avons trouvé en Dieu puisse se voir et s’entendre
 
 Prions que nos voisins, étudiants ou collègues de travail puissent connaître l’amour de Dieu, manifesté en Jésus-Christ.
+
+[Jour précédent - Dimanche 14](dimanche.md)
+[Jour suivant - Mardi 16](mardi.md)

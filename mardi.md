@@ -52,3 +52,6 @@ Tout est grâce. Disons à Dieu notre reconnaissance pour Sa présence dans ma v
 Ces dernières semaines, des frères et soeurs ont passé des temps de maladie, viens à leurs secours Seigneur, renouvelle leurs forces. Que ces moments puissent les aider à se rapprocher de toi.
 
 Seigneur, que dans ce temps de pandémie si difficile dans le domaine des relations humaines, nous puissions néanmoins nous rapprocher les uns des autres et ressortir plus forts après. Accompagne particulièrement les enfants et les jeunes dans cette période.
+
+[Jour précédent - Lundi 15](lundi.md)
+[Jour suivant - Mercredi 17](mercredi.md)

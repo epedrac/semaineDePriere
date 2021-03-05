@@ -46,3 +46,6 @@ Si tu veux connaitre plus de joie, concentre-toi sur les choses positives, les c
 Couche toi le soir en énumérant les 5 choses pour lesquelles tu peux être reconnaissant à Dieu aujourd’hui.
 
 Choisis la joie car « la joie du Seigneur, c’est ta force ».
+
+[Jour précédent - Vendredi 19](vendredi.md)
+[Jour suivant](jours.md)

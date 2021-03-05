@@ -50,3 +50,6 @@ Il est dit dans l’épître aux Éphésiens (3:20) que Dieu peut nous donner in
 Demandons à Dieu que notre désir soit que Sa gloire soit manifestée dans notre église du Drac et ceci dans toutes les générations : enfants, jeunes, adultes.
 
 Prions pour les frères et soeurs découragés dans leur foi, qu’ils soient visités par Dieu afin que leurs désirs, leur volonté soient orientés vers Jésus.
+
+[Jour précédent - Mardi 16](mardi.md)
+[Jour suivant - Jeudi 18](jeudi.md)

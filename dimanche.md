@@ -57,3 +57,6 @@ Prions que la puissance du Saint-Esprit travaille en nous, pour nous transformer
 Prions pour le secteur enfance et jeunesse de l’église, afin que le vécu dans les différents groupes apporte aux enfants et aux jeunes la joie dans ces temps de pandémie.
 
 Prions pour un affermissement de la foi chez les jeunes en préparation au baptême.
+
+[Jour précédent](jours.md)
+[Jour suivant - Lundi 15](lundi.md)

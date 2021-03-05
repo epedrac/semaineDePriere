@@ -54,3 +54,6 @@ Merci Seigneur de me proposer un autre style de pensées. Aide-moi à discerner 
 Aide-moi Seigneur à nourrir mes pensées de la bonne manière, que je puisse me tourner régulièrement vers Toi et être béni et fortifié.
 
 Aide-nous Seigneur à vivre l’Eglise avec cette force et ce renouvellement.
+
+[Jour précédent - Jeudi 18](jeudi.md)
+[Jour suivant - Samedi 20](samedi.md)

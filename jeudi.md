@@ -58,3 +58,6 @@ Choisis la présence de Dieu, tu seras rayonnant de joie !
 Prions que le Saint-Esprit nous aide à faire le point concernant notre vie et permette que nous ayons un regard lucide sur nos priorités.
 
 Autour de nous, nous avons des connaissances (famille, amis, collègues …) qui ont peut-être vécu des pertes : personnes proches, travail ... Demandons à Dieu de pouvoir être porteur de paroles d’encouragements.
+
+[Jour précédent - Mercredi 17](mercredi.md)
+[Jour suivant - Vendredi 19](vendredi.md)
