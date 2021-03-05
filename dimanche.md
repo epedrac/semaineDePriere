@@ -73,7 +73,7 @@ Prions pour un affermissement de la foi chez les jeunes en pr√©paration au bapt√
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/watch?v=IokcIvRygKo" 
+<iframe src="https://www.youtube.com/embed/IokcIvRygKo" 
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 

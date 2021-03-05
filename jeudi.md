@@ -74,7 +74,7 @@ Autour de nous, nous avons des connaissances (famille, amis, collègues …) qui
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/watch?v=0aTLfEWuKUc" 
+<iframe src="https://www.youtube.com/embed/0aTLfEWuKUc" 
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 

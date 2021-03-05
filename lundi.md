@@ -64,7 +64,7 @@ Prions que nos voisins, étudiants ou collègues de travail puissent connaître 
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/watch?v=Bs-FDKyo9Ig" 
+<iframe src="https://www.youtube.com/embed/Bs-FDKyo9Ig" 
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 

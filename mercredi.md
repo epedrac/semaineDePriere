@@ -66,7 +66,7 @@ Prions pour les frères et soeurs découragés dans leur foi, qu’ils soient vi
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/watch?v=Z-cHnX8iAw8" 
+<iframe src="https://www.youtube.com/embed/Z-cHnX8iAw8" 
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 

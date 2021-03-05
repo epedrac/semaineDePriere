@@ -74,7 +74,7 @@ Aide-nous Seigneur à vivre l’Eglise avec cette force et ce renouvellement.
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/watch?v=bD6dCZzuMlw" 
+<iframe src="https://www.youtube.com/embed/bD6dCZzuMlw" 
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 

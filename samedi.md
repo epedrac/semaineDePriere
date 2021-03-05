@@ -58,7 +58,7 @@ Choisis la joie car <i>« la joie du Seigneur, c’est ta force »</i>.
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/watch?v=euO5xW3wKFQ" 
+<iframe src="https://www.youtube.com/embed/euO5xW3wKFQ" 
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 

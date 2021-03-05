@@ -68,7 +68,7 @@ Seigneur, que dans ce temps de pandémie si difficile dans le domaine des relati
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/watch?v=8jn77-Ovqdk" 
+<iframe src="https://www.youtube.com/embed/8jn77-Ovqdk" 
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
