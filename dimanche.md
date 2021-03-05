@@ -1,7 +1,7 @@
 # Dimanche 14
 ![alt text](images/SDP-Dimanche.png "Dimanche 14 - Les bienfaits de la joie")
 
-## Philippiens 4:1-9
+<center><h2>Philippiens 4:1-9</h2></center>
 
 C'est pourquoi, mes très chers frères et sœurs que je désire tant revoir, vous qui êtes ma joie et ma couronne, tenez ferme dans le Seigneur, mes bien-aimés!
 
@@ -17,7 +17,7 @@ Enfin, frères et sœurs, portez vos pensées sur tout ce qui est vrai, tout ce 
 
 <center><h2>Méditons</h2></center>
 
-Après avoir lu le texte de ce texte, quelle est votre réaction spontanée ?
+Quelle est votre réaction spontanée ?
 
 <center><h2>Approfondissons</h2></center>
 
@@ -32,7 +32,7 @@ Vous avez déjà entendu que des clowns vont dans les hopitaux pour distraire et
 
 Dieu nous a créés pour la joie et Il a imaginé cette magnifique émotion pour qu’elle soit une force dans nos vies. Celle-ci nous permettra de vivre dans notre environnement et de relever nos défis avec succès. Dieu aime nous voir débordants de joie.
 
-L’apôtre Paul nous rappelle comme une recommandation dans Philippiens 4:4 « Réjouissez-vous dans le Seigneur, je le répète réjouissez-vous… ne vous inquiétez de rien ». Nous voyons l’insistance de Paul qui oppose la joie dans  le Seigneur aux inquiétudes.
+L’apôtre Paul nous rappelle comme une recommandation dans Philippiens 4:4 <i>« Réjouissez-vous dans le Seigneur, je le répète réjouissez-vous… ne vous inquiétez de rien »</i>. Nous voyons l’insistance de Paul qui oppose la joie dans  le Seigneur aux inquiétudes.
 
 La Bible mentionne différents types de joies :
 * La joie naturelle (contentement, satisfaction, gaieté)
@@ -40,7 +40,7 @@ La Bible mentionne différents types de joies :
 * La joie spirituelle, que l’on appelle également « la joie du Seigneur ». Elle
 nous vient de Dieu et elle est voulue par Lui pour être notre force.
 
-Néhémie la connaissait : « La joie du Seigneur est ma force » disait-il (Né. 8 :10)
+Néhémie la connaissait : <i>« La joie du Seigneur est ma force »</i> disait-il (Né. 8 :10)
 
 Cette joie particulière vient du dedans de nous. Elle est le résultat de notre confiance en un Dieu bienfaisant et fidèle. Elle nous est donnée pour nous aider à traverser la vie et ses revers. C’est la raison pour laquelle l’ennemi cherche constamment à te dépouiller de ta joie. Il sait que ton coeur remplib de la joie du Seigneur, te rendra résistant, fort, courageux et victorieux.
 
@@ -58,5 +58,5 @@ Prions pour le secteur enfance et jeunesse de l’église, afin que le vécu dan
 
 Prions pour un affermissement de la foi chez les jeunes en préparation au baptême.
 
-[Jour précédent](jours.md) <>
+[Jour précédent](jours.md)<br/> <> <br/>
 [Jour suivant - Lundi 15](lundi.md)

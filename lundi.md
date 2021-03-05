@@ -26,20 +26,20 @@ Beaucoup de gens aujourd’hui cherchent à combler le vide de leur coeur et à 
 
 Certains cherchent à vivre la joie qui comble le coeur dans les distractions, les possessions matérielles, le développement professionnel, et même dans le regard d’approbation des autres. Tout cela apporte effectivement sa dose de bonheur. Mais c’est une joie qui dépend des circonstances.
 
-La joie dont nous parle la Bible, « la Joie du Seigneur » est différente.
+La joie dont nous parle la Bible, <i>« la Joie du Seigneur »</i> est différente.
 
 Elle ne dépend pas des circonstances. Elle nous vient du dedans et jaillit vers l’extérieur. C’est une joie qui découle d’une confiance totale en la bienveillance et la bonté d’un Dieu agissant pour moi personnellement, et pour ceux que j’aime. Cette joie s’appuie sur les promesses de Dieu pour ma vie et, malgré tout ce qui s’y passe actuellement, facile ou difficile, je peux être en paix car Dieu prend soin de moi, et Il fera concourir toutes choses à mon bien. Nous avons lu :
-Romains 8 :28 « Nous savons, du reste, que toutes choses concourent au bien de ceux qui aiment Dieu ».
+Romains 8 :28 <i>« Nous savons, du reste, que toutes choses concourent au bien de ceux qui aiment Dieu »</i>.
 
 Cette joie est le résultat d’une communion intime avec Dieu qui dépasse tout ce que l’on peut imaginer. Et de cette relation profonde jaillit la joie telle une source abondante.
 
 Il est aussi écrit :
-« Aucune autre créature ne pourra nous séparer de l'amour de Dieu manifesté en Jésus-Christ notre Seigneur ». (Romains 8 :37)
+<i>« Aucune autre créature ne pourra nous séparer de l'amour de Dieu manifesté en Jésus-Christ notre Seigneur ». (Romains 8 :37)
 Ces certitudes profondes et spirituelles, vont générer en toi une force extraordinaire et une allégresse débordante, et ce malgré les aléas de la vie.
 Le Saint-Esprit qui vit en nous désire combler le vide de nos coeurs, par son amour, sa paix et sa joie.
-Romains 14 :17 « Car le Royaume de Dieu ce n’est pas le manger et le boire, mais la justice, la paix et la joie, par le Saint-Esprit ».
+Romains 14 :17 « Car le Royaume de Dieu ce n’est pas le manger et le boire, mais la justice, la paix et la joie, par le Saint-Esprit »</i>.
 Ainsi, je t’invite à faire cette prière toute simple à ce Dieu, qui ne se lasse pas de nous remplir :
-« Seigneur, j’ai cherché partout, longtemps, mais mon coeur est vide et aride, remplis-moi de ta joie. Sois ma force en toutes circonstances. Seigneur, augmente ma foi afin que je puisse te voir en toutes situations, agissant avec puissance en ma faveur, et que cette prise de conscience génère en moi une joie débordante. Car avec toi, mon Seigneur, tout est possible ! »
+<i>« Seigneur, j’ai cherché partout, longtemps, mais mon coeur est vide et aride, remplis-moi de ta joie. Sois ma force en toutes circonstances. Seigneur, augmente ma foi afin que je puisse te voir en toutes situations, agissant avec puissance en ma faveur, et que cette prise de conscience génère en moi une joie débordante. Car avec toi, mon Seigneur, tout est possible ! »</i>
 
 <center><h2>Et si on priait ?</h2></center>
 
@@ -50,5 +50,5 @@ Prions pour que cette joie, que nous avons trouvé en Dieu puisse se voir et s�
 
 Prions que nos voisins, étudiants ou collègues de travail puissent connaître l’amour de Dieu, manifesté en Jésus-Christ.
 
-[Jour précédent - Dimanche 14](dimanche.md) <>
+[Jour précédent - Dimanche 14](dimanche.md)<br/> <> <br/>
 [Jour suivant - Mardi 16](mardi.md)

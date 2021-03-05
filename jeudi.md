@@ -1,7 +1,7 @@
 # Jeudi 18
 ![alt text](images/SDP-Jeudi.png "Jeudi 18 - L’intimité avec Dieu produit la joie")
 
-## Psaume 16
+<center><h2>Psaume 16</h2></center>
 
 Hymne de David.
 Garde-moi, ô Dieu, car je cherche refuge en toi!
@@ -29,9 +29,9 @@ David a vécu dans sa vie des moments difficiles, allant jusqu’à perdre des e
 
 La présence de l’esprit de Dieu en nous produit toujours plus de paix, d’amour, de force et de joie.
 
-« Tu me feras connaître le sentier de la vie; Il y a d'abondantes joies devant ta face, des délices éternelles à ta droite ». Ps 16 :11
+<i>« Tu me feras connaître le sentier de la vie; Il y a d'abondantes joies devant ta face, des délices éternelles à ta droite ».</i> Ps 16 :11
 
-« Quand on tourne vers lui les regards, on est rayonnant de joie » Ps 34 :5
+<i>« Quand on tourne vers lui les regards, on est rayonnant de joie »</i> Ps 34 :5
 
 Lorsque Moise descend de la montagne après avoir passé 40 jours dans la présence de Dieu, la Bible nous dit que son visage est rayonnant de quelque chose de divin, la gloire de Dieu a déteint sur Moise (Exode 34 :29).
 
@@ -43,7 +43,7 @@ Aussi, je t’encourage à passer plus de temps devant le Seigneur, en sa prése
 
 Des choses extraordinaires vont commencer à se passer dans ta vie.
 
-Jean 16:24 « Jusqu’à présent vous n’avez rien demandé en mon nom, demandez afin que votre joie soit parfaite ».
+Jean 16:24 <i>« Jusqu’à présent vous n’avez rien demandé en mon nom, demandez afin que votre joie soit parfaite ».</i>
 
 Sa présence va être là, tangible, ton coeur sera apaisé et tranquille, malgré le contexte anxiogène actuel.
 
@@ -51,7 +51,7 @@ Plus tu t’exposes à la présence de Dieu, plus tu vas expérimenter une joie 
 
 Une sorte de transfert a alors lieu entre le ciel et la terre. 
 
-Choisis la présence de Dieu, tu seras rayonnant de joie !
+<b>Choisis la présence de Dieu, tu seras rayonnant de joie !</b>
 
 <center><h2>Et si on priait ?</h2></center>
 
@@ -59,5 +59,5 @@ Prions que le Saint-Esprit nous aide à faire le point concernant notre vie et p
 
 Autour de nous, nous avons des connaissances (famille, amis, collègues …) qui ont peut-être vécu des pertes : personnes proches, travail ... Demandons à Dieu de pouvoir être porteur de paroles d’encouragements.
 
-[Jour précédent - Mercredi 17](mercredi.md) <>
+[Jour précédent - Mercredi 17](mercredi.md)<br/> <> <br/>
 [Jour suivant - Vendredi 19](vendredi.md)

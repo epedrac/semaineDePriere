@@ -1,14 +1,14 @@
 # Vendredi 19
 ![alt text](images/SDP-Vendredi.png "Vendredi 19 - La qualité de tes pensées est en lien avec ta joie")
 
-## Romains 12 : 1-2
+<center><h2>Romains 12 : 1-2</h2></center>
 
 Je vous encourage donc, frères et sœurs, par les compassions de Dieu, à offrir votre corps comme un sacrifice vivant, saint, agréable à Dieu. Ce sera de votre part un culte raisonnable. Ne vous conformez pas au monde actuel, mais soyez transformés par le renouvellement de l'intelligence afin de discerner quelle est la volonté de Dieu, ce qui est bon, agréable et parfait.
 
 <i>Bible d'étude Segond 21<br />
 © 2007 Société Biblique de Genève</i>
 
-## 2 Corinthiens 10:1-5
+<center><h2>2 Corinthiens 10:1-5</h2></center>
 
 Moi Paul, je vous adresse un appel par la douceur et la bonté de Christ, moi qui suis humble quand je suis parmi vous mais plein de hardiesse envers vous quand je suis loin: je vous en prie, ne me forcez pas, lorsque je serai présent, à recourir avec hardiesse à l'assurance dont je compte faire preuve contre quelques-uns, contre ceux qui estiment que nous nous conduisons de façon purement humaine.
 
@@ -33,13 +33,13 @@ Nos pensées sont si puissantes, qu’elles peuvent nous paralyser et parasiter 
 
 Le Saint-Esprit a toujours vocation à nous libérer et à nous transformer de l’intérieur, en commençant par nos pensées, pour les amener à être conformes à ce que Dieu dit dans Sa Parole.
 
-Romains 12:2 « Ne vous conformez pas au siècle présent, mais soyez transformés par le renouvellement de l'intelligence, afin que vous discerniez quelle est la volonté de Dieu, ce qui est bon, agréable et parfait ».
+Romains 12:2 <i>« Ne vous conformez pas au siècle présent, mais soyez transformés par le renouvellement de l'intelligence, afin que vous discerniez quelle est la volonté de Dieu, ce qui est bon, agréable et parfait ».</i>
 
 Des pensées sombres, pessimistes, quand elles sont entretenues et si tu te focalises dessus assez longtemps, vont inévitablement générer des sentiments d’accablement et de découragement. Elles te voleront, et certainement en un clin d’oeil, la joie que Dieu a prévue pour toi.
 
-Ainsi, pour vivre la joie du Seigneur, il va falloir se positionner dans la foi, et refuser de capituler face aux pensées dénigrantes, dévalorisantes, fausses et toxiques. Pour cela « nous devons renverser les raisonnements et toute hauteur qui s'élève contre la connaissance de Dieu, et nous amenons toute pensée captive à l'obéissance de Christ » 2 Corinthiens 10:5
+Ainsi, pour vivre la joie du Seigneur, il va falloir se positionner dans la foi, et refuser de capituler face aux pensées dénigrantes, dévalorisantes, fausses et toxiques. Pour cela <i>« nous devons renverser les raisonnements et toute hauteur qui s'élève contre la connaissance de Dieu, et nous amenons toute pensée captive à l'obéissance de Christ »</i> 2 Corinthiens 10:5
 
-Nous devons apprendre à penser comme Dieu, et Dieu est positif sur tout, sauf sur le péché. Il ne connait pas le désespoir car tout est possible avec Lui. Et Il te donne la faculté de choisir des pensées de vie : « Voici je mets devant toi la mort et la vie, la bénédiction et la malédiction, choisis la vie ». Deutéronome 30 :19
+Nous devons apprendre à penser comme Dieu, et Dieu est positif sur tout, sauf sur le péché. Il ne connait pas le désespoir car tout est possible avec Lui. Et Il te donne la faculté de choisir des pensées de vie : <i>« Voici je mets devant toi la mort et la vie, la bénédiction et la malédiction, choisis la vie »</i>. Deutéronome 30 :19
 
 Quand une pensée négative traverse notre esprit, les neurosciences nous disent, que nous disposons de quelques secondes pour la considérer et choisir si nous l’acceptons ou la rejetons. Et si tu commençais, avec l’aide du Saint-Esprit, un petit ménage dans tes pensées, en décidant de refuser toute idée qui est contraire à ce que la Bible déclare de toi et de ton avenir ?
 
@@ -55,5 +55,5 @@ Aide-moi Seigneur à nourrir mes pensées de la bonne manière, que je puisse me
 
 Aide-nous Seigneur à vivre l’Eglise avec cette force et ce renouvellement.
 
-[Jour précédent - Jeudi 18](jeudi.md) <>
+[Jour précédent - Jeudi 18](jeudi.md)<br/> <> <br/>
 [Jour suivant - Samedi 20](samedi.md)

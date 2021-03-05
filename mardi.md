@@ -1,7 +1,7 @@
 # Mardi 16
 ![alt text](images/SDP-Mardi.png "Mardi 16 - La joie du Seigneur ne dépend pas des circonstances")
 
-## Actes 16:16-40
+<center><h2>Actes 16:16-40</h2></center>
 
 Alors que nous nous rendions au lieu de prière, une jeune esclave qui avait un esprit de divination est venue à notre rencontre. Par ses prédictions, elle procurait un grand profit à ses maîtres. Elle s'est mise à nous suivre, Paul et nous, en criant: «Ces hommes sont les serviteurs du Dieu très-haut et ils nous annoncent le chemin du salut.» Elle a fait cela pendant plusieurs jours. Paul, agacé, s'est retourné et a dit à l'esprit: «Je t'ordonne, au nom de Jésus-Christ, de sortir d'elle.» Il est sorti au moment même.
 
@@ -39,9 +39,9 @@ Peut-être traverses-tu un moment difficile, particulièrement en ces temps de c
 
 J’aimerais te dire, que ton Seigneur le sait, Il voit, Il est au courant et Il a promis qu’Il ne t’abandonnera jamais, jusqu’à la fin du monde Il sera à tes côtés.
 
-Si tu choisis la joie en Lui faisant confiance, cette joie sera ta force et tu seras victorieux.
+<b>Si tu choisis la joie en Lui faisant confiance, cette joie sera ta force et tu seras victorieux.</b>
 
-Habacuc 3 :17 : « Car le figuier ne fleurira pas, La vigne ne produira rien, Le fruit de l'olivier manquera, Les champs ne donneront pas de nourriture; Les brebis disparaîtront du pâturage, Et il n'y aura plus de boeufs dans les étables. Toutefois, je veux me réjouir en l'Eternel, Je veux me réjouir dans le Dieu de mon salut ».
+Habacuc 3 :17 : <i>« Car le figuier ne fleurira pas, La vigne ne produira rien, Le fruit de l'olivier manquera, Les champs ne donneront pas de nourriture; Les brebis disparaîtront du pâturage, Et il n'y aura plus de boeufs dans les étables. Toutefois, je veux me réjouir en l'Eternel, Je veux me réjouir dans le Dieu de mon salut ».</i>
 
 Choisis la joie !
 
@@ -53,5 +53,5 @@ Ces dernières semaines, des frères et soeurs ont passé des temps de maladie, 
 
 Seigneur, que dans ce temps de pandémie si difficile dans le domaine des relations humaines, nous puissions néanmoins nous rapprocher les uns des autres et ressortir plus forts après. Accompagne particulièrement les enfants et les jeunes dans cette période.
 
-[Jour précédent - Lundi 15](lundi.md) <>
+[Jour précédent - Lundi 15](lundi.md)<br/> <> <br/>
 [Jour suivant - Mercredi 17](mercredi.md)

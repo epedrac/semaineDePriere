@@ -1,7 +1,7 @@
 # Samedi 20
 ![alt text](images/SDP-Samedi.png "Samedi 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses")
 
-## Philipiens 4:8-20
+<center><h2>Philipiens 4:8-20</h2></center>
 
 Enfin, frères et sœurs, portez vos pensées sur tout ce qui est vrai, tout ce qui est honorable, tout ce qui est juste, tout ce qui est pur, tout ce qui est digne d'être aimé, tout ce qui mérite l'approbation, ce qui est synonyme de qualité morale et ce qui est digne de louange. Ce que vous avez appris, reçu et entendu de moi et ce que vous avez vu en moi, mettez-le en pratique. Et le Dieu de la paix sera avec vous.
 
@@ -45,7 +45,7 @@ Si tu veux connaitre plus de joie, concentre-toi sur les choses positives, les c
 
 Couche toi le soir en énumérant les 5 choses pour lesquelles tu peux être reconnaissant à Dieu aujourd’hui.
 
-Choisis la joie car « la joie du Seigneur, c’est ta force ».
+Choisis la joie car <i>« la joie du Seigneur, c’est ta force »</i>.
 
-[Jour précédent - Vendredi 19](vendredi.md) <>
+[Jour précédent - Vendredi 19](vendredi.md)<br/> <> <br/>
 [Jour suivant](jours.md)
