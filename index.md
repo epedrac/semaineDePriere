@@ -1,7 +1,5 @@
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
-<center><h1>Je participe</h1></center>
-
 Nous voici au début d’une nouvelle semaine de méditation et de prière de
 notre église.
 
@@ -19,9 +17,26 @@ Nous voulons néanmoins
 - Le prier, seul ou à plusieurs.
 
 Nous vous encourageons à prendre part à cette semaine, c’est une
-opportunité d’approfondir ce sujet :
+opportunité d’approfondir ce sujet.
 
-<center><h1>Je participe</h1></center>
+<center><h1>Je participe avec les autres</h1></center>
+
+- Dimanche 14 Mars, 10H15
+Culte de louange
+
+- Mardi 16 Mars, 20H00-22H00
+Soirée plénière sur Zoom
+
+- Jeudi 18 OU Vendredi 19 Mars, 20H15 -22H00
+Prière dans les groupes de maison sur Zoom
+
+- Samedi 20 mars, APRÈS-MIDI
+Balades par petits groupes, en respectant les consignes sanitaires
+
+- Dimanche 21 mars, 10h15
+Culte
+
+<center><h1>Je participe en ligne</h1></center>
 
 - [Dimanche](dimanche.md)
  14 - Les bienfaits de la joie
