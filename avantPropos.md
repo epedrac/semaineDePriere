@@ -35,4 +35,4 @@ Majdling.
 - [Samedi](samedi.md)
  20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses
 
- <iframe width="1211" height="681" src="https://www.youtube.com/embed/0aTLfEWuKUc?list=RDKLap28PpvOY" frameborder="0" allow="accelerometer; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+ <iframe width="100%" src="https://www.youtube.com/embed/0aTLfEWuKUc?list=RDKLap28PpvOY" frameborder="0" allow="accelerometer; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
