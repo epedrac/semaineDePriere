@@ -1,8 +1,11 @@
 # Jeudi 18
 ![alt text](images/SDP-Jeudi.png "Jeudi 18 - L’intimité avec Dieu produit la joie")
 
+<br/>
 <center><h2>Psaume 16</h2></center>
+<br/>
 
+<p align="justify">
 Hymne de David.
 Garde-moi, ô Dieu, car je cherche refuge en toi!
 Je dis à l'Eternel: «Tu es mon Seigneur, tu es mon bien suprême.»
@@ -15,16 +18,22 @@ J'ai constamment l'Eternel devant moi; quand il est à ma droite, je ne suis pas
 C'est pourquoi mon cœur est dans la joie, et mon esprit dans l'allégresse.
 Même mon corps reposera en sécurité,car tu n'abandonneras pas mon âme au séjour des morts, tu ne permettras pas que ton bien-aimé connaisse la décomposition.
 Tu me fais connaître le sentier de la vie; il y a d'abondantes joies dans ta présence, un bonheur éternel à ta droite.
+</p>
 
 <i>Bible d'étude Segond 21<br />
 © 2007 Société Biblique de Genève</i>
 
+<br/>
 <center><h2>Méditons</h2></center>
+<br/>
 
 Dans quelles circonstances ce psaume a-t-il été écrit ? Sur quoi est basée l’espérance de David ?
 
+<br/>
 <center><h2>Approfondissons</h2></center>
+<br/>
 
+<p align="justify">
 David a vécu dans sa vie des moments difficiles, allant jusqu’à perdre des enfants. La perte de notre santé, d’une personne qui nous est chère, la perte d’une sécurité … tout cela peut-être à l’origine de notre quête de Dieu. Mais c’est dans l’intimité de notre communion avec Dieu que nous serons exposés à la vraie joie.
 
 La présence de l’esprit de Dieu en nous produit toujours plus de paix, d’amour, de force et de joie.
@@ -52,12 +61,17 @@ Plus tu t’exposes à la présence de Dieu, plus tu vas expérimenter une joie 
 Une sorte de transfert a alors lieu entre le ciel et la terre. 
 
 <b>Choisis la présence de Dieu, tu seras rayonnant de joie !</b>
+</p>
 
+<br/>
 <center><h2>Et si on priait ?</h2></center>
+<br/>
 
+<p align="justify">
 Prions que le Saint-Esprit nous aide à faire le point concernant notre vie et permette que nous ayons un regard lucide sur nos priorités.
 
 Autour de nous, nous avons des connaissances (famille, amis, collègues …) qui ont peut-être vécu des pertes : personnes proches, travail ... Demandons à Dieu de pouvoir être porteur de paroles d’encouragements.
+</p>
 
 [Jour précédent - Mercredi 17](mercredi.md)<br/> <> <br/>
 [Jour suivant - Vendredi 19](vendredi.md)
