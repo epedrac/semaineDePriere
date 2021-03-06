@@ -1,4 +1,4 @@
-![alt text](images/SemaineDePriere.png "Semaine de priere")
+![alt text](images/SemaineDePriere.png "Semaine de priere - Choisis la vie !")
 
 <p align="justify">
 Nous voici au début d’une nouvelle semaine de méditation et de prière de
