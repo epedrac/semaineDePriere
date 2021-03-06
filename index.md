@@ -1,4 +1,4 @@
-# Choisis la vie !
+# Semaine de prière - Choisis la vie !
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
 <p align="justify">
