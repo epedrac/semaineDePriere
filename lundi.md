@@ -1,19 +1,10 @@
-# Lundi 15
-![alt text](images/SDP-Lundi-2.png "Lundi 15 - Où trouver la vraie joie ?")
-
+# Lundi 14
+## Tu aimeras
 <br/>
-<center><h2>Romains 8:18-39</h2></center>
+<center><h2>Matthieu 22 : 37 </h2></center>
 <br/>
 
-<p align="justify">J'estime que les souffrances du moment présent ne sont pas dignes d'être comparées à la gloire qui va être révélée pour nous. De fait, la création attend avec un ardent désir la révélation des fils de Dieu. En effet, la création a été soumise à l'inconsistance, non de son propre gré, mais à cause de celui qui l'y a soumise. Toutefois, elle a l'espérance d'être elle aussi libérée de l'esclavage de la corruption pour prendre part à la glorieuse liberté des enfants de Dieu. Or nous savons que, jusqu'à maintenant, la création tout entière soupire et souffre les douleurs de l'accouchement. Et ce n'est pas elle seule qui soupire, mais nous aussi, qui avons pourtant dans l'Esprit un avant-goût de cet avenir, nous soupirons en nous-mêmes en attendant l'adoption, la libération de notre corps. En effet, c'est en espérance que nous avons été sauvés. Or l'espérance qu'on voit n'est plus de l'espérance: ce que l'on voit, peut-on l'espérer encore? Mais si nous espérons ce que nous ne voyons pas, nous l'attendons avec persévérance.
-<br/><br/>
-De même l'Esprit aussi nous vient en aide dans notre faiblesse. En effet, nous ne savons pas ce qu'il convient de demander dans nos prières, mais l'Esprit lui-même intercède [pour nous] par des soupirs que les mots ne peuvent exprimer. Et Dieu qui examine les cœurs sait quelle est la pensée de l'Esprit, parce que c'est en accord avec lui qu'il intercède en faveur des saints.
-<br/><br/>
-Du reste, nous savons que tout contribue au bien de ceux qui aiment Dieu, de ceux qui sont appelés conformément à son plan. En effet, ceux qu'il a connus d'avance, il les a aussi prédestinés à devenir conformes à l'image de son Fils, afin que celui-ci soit le premier-né d'un grand nombre de frères. Ceux qu'il a prédestinés, il les a aussi appelés; ceux qu'il a appelés, il les a aussi déclarés justes; et ceux qu'il a déclarés justes, il leur a aussi accordé la gloire.
-<br/><br/>
-Que dirons-nous donc de plus? Si Dieu est pour nous, qui sera contre nous? Lui qui n'a pas épargné son propre Fils mais l'a donné pour nous tous, comment ne nous accorderait-il pas aussi tout avec lui? Qui accusera ceux que Dieu a choisis? C'est Dieu qui les déclare justes! Qui les condamnera? [Jésus-]Christ est mort, bien plus, il est ressuscité, il est à la droite de Dieu et il intercède pour nous! Qui nous séparera de l'amour de Christ? Serait-ce la détresse, l'angoisse, la persécution, la faim, le dénuement, le danger ou l'épée? De fait, il est écrit: C'est à cause de toi qu'on nous met à mort à longueur de journée, qu'on nous considère comme des brebis destinées à la boucherie.
-<br/><br/>
-Au contraire, dans tout cela nous sommes plus que vainqueurs grâce à celui qui nous a aimés. En effet, j'ai l'assurance que ni la mort ni la vie, ni les anges ni les dominations, ni le présent ni l'avenir, ni les puissances, ni la hauteur, ni la profondeur, ni aucune autre créature ne pourra nous séparer de l'amour de Dieu manifesté en Jésus-Christ notre Seigneur.
+<p align="justify">Jésus lui répondit : « Tu aimeras le Seigneur, ton Dieu, de tout ton cœur, de toute ton âme, et de toute ta pensée. »
 </p>
 
 <i>Bible d'étude Segond 21<br />
@@ -23,51 +14,91 @@ Au contraire, dans tout cela nous sommes plus que vainqueurs grâce à celui qui
 <center><h2>Méditons</h2></center>
 <br/>
 
-Après avoir lu le texte de Paul, reprenez-le et relevez toutes les raisons de votre espérance. Ces raisons devraient renouveler votre joie.
+<h3>« Tu ».</h3>
+<p>
+Ça sonne comme un appel personnel. Une responsabilité propre.
+Dieu s’adresse au cœur de notre vie. Chacun est concerné individuellement. Cet appel ne dépend pas de ce que les autres ont fait ou de ce qu’ils feront.
+C’est toi qui es visé. Indépendamment des autres. Inutile de regarder à gauche ou à droite pour voir comment ils se comportent. L’appel s’adresse à toi.
+<br />
+Cet appel est difficile. Il demande de l’engagement. On préfèrerait tellement que ce soient les autres qui commencent. Pour une fois, on aimerait que Dieu s’intéresse aux autres avant de s’intéresser à nous. « Et eux, Seigneur ? » Voilà ce qui nous vient à l’esprit.
+Mais Dieu s’adresse à moi personnellement. Il m’appelle à m’impliquer dans ce monde. Il m’invite à aimer. Moi.
+Aucun appel n’est plus noble.
+</p>
+<center>
 
-<br/>
-<center><h2>Approfondissons</h2></center>
-<br/>
+C’est l’essentiel à vivre et il passe par moi.
+</center>
 
-<p align="justify">
-Beaucoup de gens aujourd’hui cherchent à combler le vide de leur coeur et à vivre plus de joie, d’excitation au travers de tout un tas d’expériences et d’actions. On court à la recherche du bonheur et cependant, il semblerait que la joie et le rire se fassent de plus en plus rares autour de nous. Se pourrait-il que nous cherchions la joie profonde au mauvais endroit ?
-<br/><br/>
-Certains cherchent à vivre la joie qui comble le coeur dans les distractions, les possessions matérielles, le développement professionnel, et même dans le regard d’approbation des autres. Tout cela apporte effectivement sa dose de bonheur. Mais c’est une joie qui dépend des circonstances.
-<br/><br/>
-La joie dont nous parle la Bible, <i>« la Joie du Seigneur »</i> est différente.
-<br/><br/>
-Elle ne dépend pas des circonstances. Elle nous vient du dedans et jaillit vers l’extérieur. C’est une joie qui découle d’une confiance totale en la bienveillance et la bonté d’un Dieu agissant pour moi personnellement, et pour ceux que j’aime. Cette joie s’appuie sur les promesses de Dieu pour ma vie et, malgré tout ce qui s’y passe actuellement, facile ou difficile, je peux être en paix car Dieu prend soin de moi, et Il fera concourir toutes choses à mon bien. Nous avons lu :
-Romains 8 :28 <i>« Nous savons, du reste, que toutes choses concourent au bien de ceux qui aiment Dieu »</i>.
-<br/><br/>
-Cette joie est le résultat d’une communion intime avec Dieu qui dépasse tout ce que l’on peut imaginer. Et de cette relation profonde jaillit la joie telle une source abondante.
-<br/><br/>
-Il est aussi écrit :
-<i>« Aucune autre créature ne pourra nous séparer de l'amour de Dieu manifesté en Jésus-Christ notre Seigneur ». (Romains 8 :37)
-Ces certitudes profondes et spirituelles, vont générer en toi une force extraordinaire et une allégresse débordante, et ce malgré les aléas de la vie.
-Le Saint-Esprit qui vit en nous désire combler le vide de nos coeurs, par son amour, sa paix et sa joie.
-Romains 14 :17 « Car le Royaume de Dieu ce n’est pas le manger et le boire, mais la justice, la paix et la joie, par le Saint-Esprit »</i>.
-Ainsi, je t’invite à faire cette prière toute simple à ce Dieu, qui ne se lasse pas de nous remplir :
-<i>« Seigneur, j’ai cherché partout, longtemps, mais mon coeur est vide et aride, remplis-moi de ta joie. Sois ma force en toutes circonstances. Seigneur, augmente ma foi afin que je puisse te voir en toutes situations, agissant avec puissance en ma faveur, et que cette prise de conscience génère en moi une joie débordante. Car avec toi, mon Seigneur, tout est possible ! »</i>
+<h3>« Tu aimeras ».</h3>
+<p>
+C’est un peu fou cet impératif !
+S’il est un sentiment que l’on ne peut pas obliger ni forcer, c’est bien l’amour, non ? À partir du moment où l’on m’ordonne d’aimer, est-ce que l’amour qui naît de l’obéissance à cette injonction est toujours de l’amour ? <br />
+J’ai parfois l’impression qu’il y a un peu de ça dans ma relation à Dieu. Il me demande de l’aimer mais, comme ça ne vient pas naturellement, je me force un peu.
+Seulement, je me sens vite hypocrite car je sais que Dieu regarde au cœur. J’essaye alors de faire davantage semblant. C’est voué à l’échec !
+Comment m’en sortir ? Comment aimer naturellement ?
+<br /><br />
+Goûtez, et constatez que l’Éternel est bon ! Heureux l’homme qui trouve son refuge en lui.
+Psaumes 34 : 9
+<br /><br />
+Pour aimer l’Éternel, il faut redécouvrir qui Il est. Il faut revenir à sa véritable identité, en la démêlant de tous les autres éléments avec lesquels on l’a mélangée au fil de l’Histoire.
+<br /><br />
+Pour aimer l’Éternel, il faut redécouvrir qui Il est, Lui, intimement.
+À partir de là, l’amour naîtra, naturellement. Car Dieu est adorable, au sens le plus fort du terme. Il est à aimer. Passionnément.
+<br /><br />
+L’Éternel est à aimer, non pas parce qu’Il nous le réclame.
+Il est à aimer simplement pour qui Il est : Son être, Ses attributs, Sa bonté, Sa pureté, Son amour infini.
+<br /><br />
+
+
+Dieu ne nous demande pas de faire un effort pour l’aimer ; comme des parents demanderaient à leurs enfants d’aimer un peu plus leur « tante Annie » alors qu’eux-mêmes ont de la peine.
+<br /><br />
+
+Dieu ne nous demande pas de l’aimer par politesse. Dieu nous demande de l’aimer naturellement.
+<br /><br />
+
+La source de notre amour pour Dieu ne se trouve pas en nous, dans nos efforts, notre éducation, notre politesse ou notre spiritualité. Non.
+La source de notre amour pour Dieu se trouve en Lui.
+<br /><br />
+
+Pour mieux l’aimer, il ne faut pas mieux le vouloir ou mieux Lui obéir.
+<br /><br />
+
+
+Pour mieux l’aimer, il faut mieux Le connaître.
+</p>
+
+
 </p>
 
 <br/>
-<center><h2>Et si on priait ?</h2></center>
+<center><h2>Prière</h2></center>
 <br/>
 
 <p align="justify">
-Prions pour que nous comprennions cette mesure de grâce que Dieu nous a faite en Jésus-Christ et lorsque nous entendons des paroles qui nous accusent, nous prennions position avec l’autorité que nous avons reçu.
-Relisez le verset 37.
-<br/><br/>
-Prions pour que cette joie, que nous avons trouvé en Dieu puisse se voir et s’entendre
-<br/><br/>
+*Tu t’adresses à moi, Seigneur.
+J’aurais préféré que tu commences par les autres, mais j’accepte que c’est moi que tu appelles.
+Merci pour cet honneur et cette responsabilité.
+Je remplace ce mensonge qui me fait croire que je n’ai pas d’importance à tes yeux, par la vérité que tu as un plan pour moi.
+J’accepte, Seigneur, que tu m’appelles à aimer.
+Je reçois de toi, mon Dieu, cette énergie qui me manque, cet amour entier pour toi et pour ce monde.
+
+<ul>
+<li>
+Pour aimer l’Eternel, il faut redécouvrir qui Il est. Prions pour que nous retrouvions le goût de Dieu.
+</li><li>
+Demandons pardon pour toutes les fois où nous n’avons pas pris ce commandement d’aimer au sérieux et que nous avons décliné cette responsabilité.
+</li><li>
 Prions que nos voisins, étudiants ou collègues de travail puissent connaître l’amour de Dieu, manifesté en Jésus-Christ.
+</li><li>
+Autour de nous, nous avons des connaissances (famille, amis, collègues …) qui ont peut-être vécu des pertes : personnes proches, travail ... Demandons à Dieu de pouvoir être porteur de paroles d’encouragements.
+</li></ul>
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/Bs-FDKyo9Ig" 
+<iframe src="https://www.youtube.com/embed/IDtwGwIpOYw"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
 
-[Jour précédent - Dimanche 14](dimanche.md)<br/> <> <br/>
-[Jour suivant - Mardi 16](mardi.md)
+[Jour précédent - Dimanche 13](dimanche.md)<br/> <> <br/>
+[Jour suivant - Mardi 15](mardi.md)

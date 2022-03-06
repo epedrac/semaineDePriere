@@ -1,25 +1,13 @@
-# Vendredi 19
-![alt text](images/SDP-Vendredi-2.png "Vendredi 19 - La qualité de tes pensées est en lien avec ta joie")
+# Vendredi 18
+## De toute ta pensée renouvelée
+
 
 <br/>
-<center><h2>Romains 12 : 1-2</h2></center>
-<br/>
-
-<p align="justify">
-Je vous encourage donc, frères et sœurs, par les compassions de Dieu, à offrir votre corps comme un sacrifice vivant, saint, agréable à Dieu. Ce sera de votre part un culte raisonnable. Ne vous conformez pas au monde actuel, mais soyez transformés par le renouvellement de l'intelligence afin de discerner quelle est la volonté de Dieu, ce qui est bon, agréable et parfait.
-</p>
-
-<i>Bible d'étude Segond 21<br />
-© 2007 Société Biblique de Genève</i>
-
-<br/>
-<center><h2>2 Corinthiens 10:1-5</h2></center>
+<center><h2>Romains 12:2</h2></center>
 <br/>
 
 <p align="justify">
-Moi Paul, je vous adresse un appel par la douceur et la bonté de Christ, moi qui suis humble quand je suis parmi vous mais plein de hardiesse envers vous quand je suis loin: je vous en prie, ne me forcez pas, lorsque je serai présent, à recourir avec hardiesse à l'assurance dont je compte faire preuve contre quelques-uns, contre ceux qui estiment que nous nous conduisons de façon purement humaine.
-<br/><br/>
-Si en effet nous vivons dans la réalité humaine, nous ne combattons pas de façon purement humaine. En effet, les armes avec lesquelles nous combattons ne sont pas humaines, mais elles sont puissantes, grâce à Dieu, pour renverser des forteresses. Nous renversons les raisonnements et tout obstacle qui s'élève avec orgueil contre la connaissance de Dieu, et nous faisons toute pensée prisonnière pour qu'elle obéisse à Christ.
+“Ne vous laissez pas modeler par le monde actuel, mais laissez-vous transformer par le renouvellement de votre pensée, pour pouvoir discerner la volonté de Dieu : ce qui est bon, ce qui lui plaît, ce qui est parfait.”
 </p>
 
 <i>Bible d'étude Segond 21<br />
@@ -28,56 +16,75 @@ Si en effet nous vivons dans la réalité humaine, nous ne combattons pas de fa�
 <br/>
 <center><h2>Méditons</h2></center>
 <br/>
+<p>
+Aimer Dieu de toute sa pensée, c’est penser dans le bon sens.
+Avoir une intelligence renouvelée par Lui, orientée vers Lui.
+Faire de Sa logique à Lui, ma logique à moi.
+</p><p>
+Évidemment, cela nécessite de se laisser transformer, parce que, naturellement, l’être humain ne naît pas avec le désir de faire la volonté de Dieu.
+La nouvelle naissance entraîne aussi un changement dans nos pensées. Comme si Dieu les prenait par le menton et les orientait dans la bonne direction en nous disant : « Pense par-là, mon fils, ma fille. Pense avec moi. »
+</p><p>
+<center><b>Ma pensée a été créée pour aimer Dieu,
+pour aimer penser ce qui est juste et bon. </b></center>
+</p><p>
+Aimer Dieu de toute sa pensée, c’est vivre avec une pensée, une réflexion, une intelligence et des raisonnements, orientés entièrement dans la bonne direction, celle qui aime Dieu.
+</p><p>
+Mais aimer Dieu de toute sa pensée, ce n’est pas seulement répondre à la question :
+« Dans quelle direction je pense ? »
+C’est aussi se demander : « À quoi je pense ? Qu’est-ce qui habite ma pensée ? »
+</p><p>
+Imagine qu’on fasse un « diagramme camembert » de ce qui habite ta pensée sur ces six derniers mois. Quelle place prendraient le travail, les soucis, la culpabilité, la comparaison, les finances, les loisirs, la beauté, la nourriture ...?
+</p><p>
+Quel pourcentage de ton « temps de pensée » serait pris par les stratégies déployées pour parvenir à tes fins (plaisir, richesse, reconnaissance, réussite, etc.) ?
+</p><p>
+Dieu voit tout cela, tout le temps, en continu, quand Il nous regarde. Il nous conseille de l’aimer de toute notre pensée, car ce serait tellement plus reposant pour nous !
+</p><p>
+Imagine que ta pensée soit entièrement habitée par l’amour pour le bien.
+</p><p>
+Plus de culpabilité, puisque Dieu dit qu’il n’y a plus de condamnation pour ceux qui lui appartiennent.
+Plus de mauvaises pensées envers toi, puisque tu sais que Dieu t’aime inconditionnellement.
+Plus de mauvaises pensées envers les autres, puisque tu leur as accordé ton pardon.
+Plus de jalousie, puisque tu te réjouis de ce que Dieu t’a donné à toi et de ce qu’il a donné aux autres.
+Plus d’inquiétude, puisque tu sais que Dieu pourvoit.
+Plus de réflexion pour savoir comment être enfin heureux, puisque tu sais que tu n’as besoin de rien d’autre que cette relation vivante à Dieu qui nourrit ton cœur, ton âme et ta pensée.
+ </p><p>
+Tu imagines ? C’est pour vivre cela que ta pensée a été créée. Retrouver cet état, c’est retrouver la liberté. </p><p>
+Il y a là un réel combat à mener dans nos pensées.
+Un combat pour trouver la paix et pour la conserver.
 
-Qu’apprenons-nous dans ces deux textes concernant la relation qu’il y a entre nos pensées et la joie ?
-
-<br/>
-<center><h2>Approfondissons</h2></center>
-<br/>
-
-<p align="justify">
-On ne peut entretenir des pensées noires, négatives et vivre la joie. De la même manière, une personne joyeuse ne peut être remplie de pensées sombres.
-<br/><br/>
-Pour vivre plus joyeusement, il va donc falloir nettoyer notre système de pensées et remplacer les pensées noires, toxiques, négatives par des pensées pleines de foi et d’espérance.
-<br/><br/>
-Parce que l’homme est tel que sont les pensées dans son âme (Proverbes 23 :7) sa vie sera le résultat de ce qu’il entretient dans sa tête sur lui-même, sur sa valeur, sur son avenir, ses possibilités. Ces pensées vont générer des émotions, qui elles-mêmes vont pousser à certaines actions et ainsi le cercle négatif se met en place.
-<br/><br/>
-Nos pensées sont si puissantes, qu’elles peuvent nous paralyser et parasiter notre potentiel. Les pensées négatives sont les plus grands voleurs de joie de tous les temps.
-<br/><br/>
-Le Saint-Esprit a toujours vocation à nous libérer et à nous transformer de l’intérieur, en commençant par nos pensées, pour les amener à être conformes à ce que Dieu dit dans Sa Parole.
-<br/><br/>
-Romains 12:2 <i>« Ne vous conformez pas au siècle présent, mais soyez transformés par le renouvellement de l'intelligence, afin que vous discerniez quelle est la volonté de Dieu, ce qui est bon, agréable et parfait ».</i>
-<br/><br/>
-Des pensées sombres, pessimistes, quand elles sont entretenues et si tu te focalises dessus assez longtemps, vont inévitablement générer des sentiments d’accablement et de découragement. Elles te voleront, et certainement en un clin d’oeil, la joie que Dieu a prévue pour toi.
-<br/><br/>
-Ainsi, pour vivre la joie du Seigneur, il va falloir se positionner dans la foi, et refuser de capituler face aux pensées dénigrantes, dévalorisantes, fausses et toxiques. Pour cela <i>« nous devons renverser les raisonnements et toute hauteur qui s'élève contre la connaissance de Dieu, et nous amenons toute pensée captive à l'obéissance de Christ »</i> 2 Corinthiens 10:5
-<br/><br/>
-Nous devons apprendre à penser comme Dieu, et Dieu est positif sur tout, sauf sur le péché. Il ne connait pas le désespoir car tout est possible avec Lui. Et Il te donne la faculté de choisir des pensées de vie : <i>« Voici je mets devant toi la mort et la vie, la bénédiction et la malédiction, choisis la vie »</i>. Deutéronome 30 :19
-<br/><br/>
-Quand une pensée négative traverse notre esprit, les neurosciences nous disent, que nous disposons de quelques secondes pour la considérer et choisir si nous l’acceptons ou la rejetons. Et si tu commençais, avec l’aide du Saint-Esprit, un petit ménage dans tes pensées, en décidant de refuser toute idée qui est contraire à ce que la Bible déclare de toi et de ton avenir ?
-<br/><br/>
-Si Dieu l’a dit, alors c’est ce que je décide de croire.
-<br/><br/>
-En collaboration avec le Saint-Esprit, amène ces pensées pessimistes et décourageantes, captives à l’obéissance de Christ, et ta joie va déborder.
 </p>
+<p>
+<center><b>“Ne vous mettez en souci pour rien, mais, en toute chose, exposez vos besoins à Dieu. Adressez-lui vos prières et vos requêtes,
+en lui disant aussi votre reconnaissance.
+Alors la paix de Dieu, qui surpasse tout ce qu’on peut concevoir, gardera votre cœur et votre pensée sous la protection de Jésus-Christ.”
+Philippiens 4:6-7
+</b></center>
+</p>
+
 
 <br/>
 <center><h2>Et si on priait ?</h2></center>
 <br/>
 
 <p align="justify">
-Merci Seigneur de me proposer un autre style de pensées. Aide-moi à discerner les moments où il y a infiltration de pensées toxiques afin que je réagisse de la bonne manière.
-<br/><br/>
-Aide-moi Seigneur à nourrir mes pensées de la bonne manière, que je puisse me tourner régulièrement vers Toi et être béni et fortifié.
-<br/><br/>
-Aide-nous Seigneur à vivre l’Eglise avec cette force et ce renouvellement.
+
+* Demandons à Dieu de nous sonder et de nous inspirer pour que notre esprit et nos pensées soient orientées vers Lui.
+
+* Remettons-Lui notre combat pour trouver la paix dans nos pensées.
+
+* L’église vit dans des transitions et des transmissions dans les ministères, que Dieu donne de la sagesse et du discernement en toutes choses.
+
+* Que dans le processus de réflexion concernant le poste d’assistance diaconale, les responsables et l’église dans son ensemble puisse écouter Dieu.
+
+* Que Dieu pourvoit pour des futurs pasteurs, anciens, diacres, membres du Conseil d’Administration.
+
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/bD6dCZzuMlw" 
+<iframe src="https://www.youtube.com/embed/A_3IJpmytWs"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Jeudi 18](jeudi.md)<br/> <> <br/>
-[Jour suivant - Samedi 20](samedi.md)
+[Jour précédent - Jeudi 17](jeudi.md)<br/> <> <br/>
+[Jour suivant - Samedi 19](samedi.md)
 

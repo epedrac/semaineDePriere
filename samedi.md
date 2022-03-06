@@ -1,16 +1,12 @@
-# Samedi 20
-![alt text](images/SDP-Samedi-2.png "Samedi 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses")
+# Samedi 19
+## De toute ta force, en action
 
 <br/>
-<center><h2>Philipiens 4:8-20</h2></center>
+<center><h2>2  Timothée  2 : 1</h2></center>
 <br/>
 
-<p align="justify">
-Enfin, frères et sœurs, portez vos pensées sur tout ce qui est vrai, tout ce qui est honorable, tout ce qui est juste, tout ce qui est pur, tout ce qui est digne d'être aimé, tout ce qui mérite l'approbation, ce qui est synonyme de qualité morale et ce qui est digne de louange. Ce que vous avez appris, reçu et entendu de moi et ce que vous avez vu en moi, mettez-le en pratique. Et le Dieu de la paix sera avec vous.
-<br/>
-J'ai éprouvé une grande joie dans le Seigneur de ce que vous avez enfin pu renouveler l'expression de votre intérêt pour moi. Vous y pensiez bien, mais l'occasion vous manquait. Ce n'est pas à cause de mes besoins que je dis cela, car j'ai appris à être satisfait de ma situation. Je sais vivre dans la pauvreté et je sais vivre dans l'abondance. Partout et en toutes circonstances j'ai appris à être rassasié et à avoir faim, à être dans l'abondance et à être dans le besoin. Je peux tout par celui qui me fortifie, [Christ]. Cependant vous avez bien fait de prendre part à ma détresse.
-<br/><br/>
-Vous le savez vous-mêmes, Philippiens, au début de la prédication de l'Evangile, lorsque j'ai quitté la Macédoine, aucune Eglise n'a pris part avec moi à un tel échange de contributions. Vous avez été les seuls à le faire: à Thessalonique déjà, et à plus d'une reprise, vous m'avez envoyé de quoi pourvoir à mes besoins. Ce n'est pas que je recherche les dons, mais je désire qu'un fruit abondant soit porté sur votre compte. J'ai tout reçu et je suis dans l'abondance. J'ai été comblé en recevant d'Epaphrodite ce que vous m'avez envoyé comme un parfum de bonne odeur, un sacrifice que Dieu accepte et qui lui est agréable. Et mon Dieu pourvoira à tous vos besoins conformément à sa richesse, avec gloire, en Jésus-Christ. A notre Dieu et Père soit la gloire aux siècles des siècles! Amen!
+<p align="justify">« Toi donc, mon enfant, puise tes forces dans la grâce
+qui nous est accordée en Jésus-Christ. »
 </p>
 
 <i>Bible d'étude Segond 21<br />
@@ -19,48 +15,85 @@ Vous le savez vous-mêmes, Philippiens, au début de la prédication de l'Evangi
 <br/>
 <center><h2>Méditons</h2></center>
 <br/>
+<p>
+Ma force, mon énergie et mon dynamisme ont-ils vraiment été créés pour aimer Dieu ?
+</p><p>
+Que nous devions aimer l’Éternel de tout notre cœur, notre âme, notre pensée, est assez logique dans le fond. Mais quand il s’agit de notre force, on ne sait pas vraiment comment s’y prendre.
+On s’imagine peut-être pouvoir chanter un peu plus fort, mais est-ce bien cela que vise le commandement d’aimer ?
+</p><p>
+Le problème que nous ressentons ici est un problème de culture. Imprégnée par la pensée grecque, notre éducation occidentale insinue que le monde des idées et du raisonnement est plus noble et plus spirituel que le monde de la matière et de la pratique.
+Notre culture nous pousse à croire que la vie « bien pensée » est plus spirituelle que la vie réelle.
+Seulement, c’est faux, contraire à l’enseignement biblique, contraire à la pensée de Dieu.
+</p><p>
+Si c’était vrai, Jésus ne serait pas venu en chair et en os. Il serait venu en pensée.
+</p><p>
+Mon corps, ma force, mon énergie, ne sont pas des empêchements pour accomplir la volonté de Dieu. Ce sont des outils.
+</p><p>
+Aimer l’Éternel de toute ta force, c’est l’aimer avec toute ta vigueur, ta créativité, ton énergie, ton corps, ta vie. Ça bouge, bon sang ! Ça bouge et c’est bon. C’est vivant !
+</p><p>
+Aimer l’Éternel de toute ta force, c’est sortir de la passivité.
+C’est agissant. Innovant. Activant. Passionnant.
+C’est mettre non seulement nos réflexions au service de ce grand Dieu qui nous aime, mais aussi nos actions, nos dons, nos projets.
+</p><p><center><b>
+Aimer l’Éternel de toute ma force,
+c’est mettre toute mon énergie
+pour que soit célébrée Sa gloire à Lui.</b></center>
+</p><p>
+Pour que soit ressenti par mes voisins Son amour à Lui.
+Pour que soient mises en pratique dans mon quotidien Ses valeurs à Lui.
+</p><p>
+La foi ne s’arrête pas à l’esprit, au cœur ou à l’âme. La foi ne s’arrête pas à l’intériorité de ma vie. Elle s’extériorise.
+</p><p>
+Ma foi nécessite mes pieds autant que mes pensées, mes mains autant que mes refrains.
+</p><p>
+J’apprécie cette mention « de toute ta force » parce qu’elle est active ! Elle m’engage.
+</p><p>
+Aimer Dieu de toute ma force, mon énergie, mes efforts, c’est prendre à bras le corps le projet de Dieu pour ce monde, et m’y consacrer. Ça demande de la ténacité, du courage, de l’envie et de la motivation.
+</p><p>
 
-Dans ce texte, Paul nous parle de sa joie dans un domaine précis de sa vie.
-Lequel ?
+Peut-être que tu te dis : « Ok, c’est bien beau... mais mon travail me prend tellement d’énergie qu’à la fin de la journée, il ne me reste rien. Comment veux-tu que je fasse, moi, pour aimer Dieu de toute ma force ? »
+</p><p>
 
-<br/>
-<center><h2>Approfondissons</h2></center>
-<br/>
+Notre énergie, notre force, ce n’est pas seulement ce que l’on fait, mais aussi la manière dont on le fait.
+Dans ton travail, tu peux mettre ton énergie à râler contre ce que tu dois faire, mais tu peux aussi mettre toute ton énergie à amener de la bonne humeur autour de toi.
+Et puis, aimer Dieu de toute ton énergie, c’est aussi L’aimer avec l’argent que te rapporte cette énergie.
+Si tu utilises dix pour cent de ce que cette énergie te fait gagner financièrement pour les redonner à des ministères ou des œuvres qui favorisent ce que Dieu aimerait voir fleurir sur la terre, alors tu participes, de toute ton énergie, à cette adoration.
+</p><p>
 
-<p align="justify">
-Ce sur quoi nous braquons notre attention devient prééminent dans notre vie.
-<br/><br/>
-Lorsque vous allez au cirque, le plaisir est total, lorsque toutes les lumières sont braquées sur le centre de la piste éclairant l’animation. A ce moment précis, notre attention est figée, nous ne sommes plus capables de distinguer toute l’activité du personnel autour de la piste. Nous ne percevons que ce sur quoi notre attention était concentrée.
-<br/><br/>
-Dans notre vie, c’est un peu la même chose. Ce sur quoi nous braquons notre attention devient prédominant. Si nous focalisons de manière prolongée notre attention sur ce qui ne va pas, ce qu’il nous manque, cet aspect du caractère de notre conjoint qui nous dérange. Ces choses-là vont devenir prédominantes dans nos pensées et vont affecter notre joie.
-<br/><br/>
-Certaines personnes sont tellement concentrées à considérer tout ce qui ne va pas dans leur quotidien, qu’elles en oublient d’apprécier les milles autres choses dont Dieu leur a fait grâce.
-<br/><br/>
-En ce moment, sur quoi es-tu en train de braquer ton projecteur ? Est-ce générateur de joie ou bien, au contraire, de découragement ?
-<br/><br/>
-Es-tu en train de ruminer sur tout le mal que l’on t’a fait ces dernières années ?
-<br/><br/>
-Te focalises-tu sur tes échecs, tes défauts ou ces imperfections en oubliant de célébrer la créature merveilleuse que tu es ?
-<br/><br/>
-Te concentres-tu sur toutes les impossibilités en oubliant qu’avec Dieu il y a toujours une solution ?
-<br/><br/>
-Le peuple d’Israël a dû errer dans un désert aride pendant quarante années, car il s’était focalisé sur leurs problèmes, leurs insatisfactions. Ils étaient devenus râleurs, ingrats. Leur traversée de ce désert, initialement, ne devait durer que quelques jours…
-<br/><br/>
-Chers amis, braquons volontairement notre projecteur sur les bienfaits de Dieu. Comptons-les minutieusement tous les soirs avant de nous endormir.
-<br/><br/>
-Ce sur quoi tu braques ton projecteur, va devenir prédominant dans ta vie et va affecter la qualité de ton quotidien.
-<br/><br/>
-Si tu veux connaitre plus de joie, concentre-toi sur les choses positives, les cadeaux que Dieu te fait tous les jours. Tu pourrais par exemple tenir un journal de gratitude.
-<br/><br/>
-Couche toi le soir en énumérant les 5 choses pour lesquelles tu peux être reconnaissant à Dieu aujourd’hui.
-<br/><br/>
-Choisis la joie car <i>« la joie du Seigneur, c’est ta force »</i>.
+Aimer l’Éternel de toute sa force, c’est refuser l’inaction.
+Souvent, nos communautés chrétiennes sont connues pour ce qu’elles ne font pas : on ne fume pas, on ne dit pas de « gros mots », on ne trompe pas sa femme, on ne couche pas avant le mariage, on ne boit pas.... Bref, nous sommes connus pour ce qu’on ne fait pas.
+</p><p>
+
+Mais de qui se souvient-on parce qu’il n’a pas fait quelque chose ?
+</p><p>
+
+Arrêtons d’être connus pour ce que l’on ne fait pas. Soyons connus pour ce que l’on fait.
+Jésus, par sa Parole et son Esprit, ne nous incite pas uniquement à ne pas faire certaines choses.
+Il nous appelle, nous motive et nous équipe à faire quelque chose pour ce monde.
+Des actions qui détonnent. Des gestes qui cassent la logique humaine. Des victoires sur le mal.
+De l’amour au lieu de la haine. Des fleurs au milieu du désert. De toute notre force.
+
 </p>
 
+## Prions
+Prière :
+
+* Prenons du temps pour nous interroger sur la manière dont nous gérons nos forces et aussi sur ce que nos forces nous rapportent.
+
+* Si nous pouvions mettre toute notre énergie à aimer Dieu, qu’est-ce que nous entreprendrions ? Prenons un temps pour méditer ce sujet et pour réfléchir au premier pas à mettre en place pour réaliser ce projet.
+
+* Comment pouvons-nous être intentionnel dans ce domaine pour que notre force et ce qu’elle nous rapporte, servent à adorer Dieu ?
+
+* Que chacun puisse être au clair concernant son don (par la prière, le discernement, le désir de service et la reconnaissance des uns et des autres).
+
+* Que les responsables de l'église sachent multiplier les possibilités de service.
+
+* Que l'ensemble des dons puisse être pratiqué, pas seulement ceux dédiés au culte ou à l'enseignement, mais il y a aussi des besoins dans des secteurs comme la communication, l'administratif, la diaconie et l’action sociale.
+
 <div class="container">
-<iframe src="https://www.youtube.com/embed/euO5xW3wKFQ" 
+<iframe src="https://www.youtube.com/embed/mUoGrP2Uxr8"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Vendredi 19](vendredi.md)<br/> <> <br/>
-[Jour suivant](jours.md)
+[Jour précédent - Vendredi 18](vendredi.md)<br/> <> <br/>
+[Jour suivant - Dimanche 20](dimanche2.md)
