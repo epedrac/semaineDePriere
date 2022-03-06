@@ -3,39 +3,44 @@
 <center><h1>Avant propos</h1></center>
 
 <p align="justify">
-La joie est un aspect fondamental de la foi chrétienne. C'est en allant à la
-rencontre de Dieu et en méditant sa Parole que votre joie grandira.
-<br/><br/>
-La joie est aussi une émotion puissante. Ta joie, c’est ta force. Avec un coeur
-joyeux, tout est possible ! C’est la raison pour laquelle l’ennemi cherche
-toujours à voler notre joie pour nous affaiblir, nous décourager et, au final,
-nous empêcher de vivre la vie abondante que Dieu a prévue pour nous.
-<br/><br/>
-Les différents textes bibliques et méditations ont pour but de nous
-encourager à comprendre ce qu’est la vraie joie, la Joie du Seigneur.
-<br/><br/>
-Plusieurs pensées sont tirées d’un livre sur le sujet de la joie d’Anne
-Majdling.
+Ce livret est inspiré du livre "Un moi pour aimer l'essentiel", de Gilles Geiser, aux éditions BLF.
+Nous remercions l’auteur et les éditions BLF qui nous ont permis d’utiliser librement les méditations de ce livre.
 </p>
+<p>
+<i>« Maître, quel est, dans la Loi, le commandement le plus grand ?
+Jésus lui répondit : « Tu aimeras le Seigneur, ton Dieu, de tout ton cœur, de toute ton âme, et de toute ta pensée. C’est là le commandement le plus grand et le plus important. Et il y en a un second qui lui est semblable: « Tu aimeras ton prochain comme toi-même ». Tout ce qu’enseignent la Loi et les Prophètes est contenu dans ces deux commandements. » Matthieu 22 : 36-40 </i></p>
+<p><i>«  Si vous savez ces choses, vous êtes heureux, pourvu que vous les mettiez en pratique. »Jean 13 :17</i>
+</p>
+
+<p>
+
+Quels sont les effets de la connaissance et de l’amour de Dieu dans votre vie ?<br />
+Comment « aimer selon le coeur de Dieu », dans notre quotidien, au travail, quand c’est difficile, ou même quand on n’en a pas envie ?
+</p>
+<p>Nous vous proposons pour cette semaine de prière d’approfondir le thème de l’année, et de survoler le livre «  Un moi pour aimer l’essentiel » de Gilles Geiser.
+Ce livre propose un parcours de 30 jours d’approfondissement des deux commandements les plus importants selon Jésus : Aimer Dieu et aimer son prochain.
+Le but de ce cheminement de 7 jours, ce n’est pas uniquement que nous en sachions plus sur Dieu, mais que les cercles relationnels, familiaux et professionnels dans lesquels nous vivons perçoivent la transformation que produit l’Evangile dans une vie.</p>
 
 <center><h1>Programme</h1></center>
 
 - [Dimanche](dimanche.md)
- 14 - Les bienfaits de la joie
+ 13 - L’essentiel
 - [Lundi](lundi.md)
- 15 - Où trouver la vraie joie ?
+ 14 - Tu aimeras
 - [Mardi](mardi.md)
- 16 - La joie du Seigneur ne dépend pas des circonstances
+ 15 - Le Seigneur ton Dieu
 - [Mercredi](mercredi.md)
- 17 - La joie du Seigneur en toi, va attirer le monde à Christ.
+ 16 - De tout ton coeur transformé
 - [Jeudi](jeudi.md)
- 18 - L’intimité avec Dieu produit la joie
+ 17 - De toute ton âme guérie
 - [Vendredi](vendredi.md)
- 19 - La qualité de tes pensées est en lien avec ta joie
+ 18 - De toute ta pensée renouvelée
 - [Samedi](samedi.md)
- 20 - Pour garder ta joie, garde tes yeux fixés sur les bonnes choses
+ 19 - De toute ta force, en action
+- [Dimanche de clôture](dimanche2.md)
+ 20 - Ton prochain comme toi-même
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/0aTLfEWuKUc" 
+<iframe src="https://www.youtube.com/embed/0aTLfEWuKUc"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>

@@ -1,19 +1,13 @@
-# Dimanche 14
-![alt text](images/SDP-Dimanche-2.png "Dimanche 14 - Les bienfaits de la joie")
+# Dimanche 13
 
+## L’essentiel
 <br/>
-<center><h2>Philippiens 4:1-9</h2></center>
+<center><h2>Matthieu 22 : 36-40 </h2></center>
 <br/>
 
 <p align="justify">
-C'est pourquoi, mes très chers frères et sœurs que je désire tant revoir, vous qui êtes ma joie et ma couronne, tenez ferme dans le Seigneur, mes bien-aimés!
-<br/><br/>
-J'encourage Evodie et Syntyche à vivre en plein accord dans le Seigneur. Toi aussi, mon fidèle collègue, je te demande de les aider, elles qui ont combattu pour l'Evangile avec moi ainsi qu'avec Clément et mes autres collaborateurs dont le nom figure dans le livre de vie.
-Réjouissez-vous toujours dans le Seigneur! Je le répète: réjouissez-vous!
-Que votre douceur soit connue de tous les hommes. Le Seigneur est proche.
-Ne vous inquiétez de rien, mais en toute chose faites connaître vos besoins à Dieu par des prières et des supplications, dans une attitude de reconnaissance. Et la paix de Dieu, qui dépasse tout ce que l'on peut comprendre, gardera votre cœur et vos pensées en Jésus-Christ.
-<br/><br/>
-Enfin, frères et sœurs, portez vos pensées sur tout ce qui est vrai, tout ce qui est honorable, tout ce qui est juste, tout ce qui est pur, tout ce qui est digne d'être aimé, tout ce qui mérite l'approbation, ce qui est synonyme de qualité morale et ce qui est digne de louange. Ce que vous avez appris, reçu et entendu de moi et ce que vous avez vu en moi, mettez-le en pratique. Et le Dieu de la paix sera avec vous.
+« Maître, quel est, dans la Loi, le commandement le plus grand ?
+Jésus lui répondit : « Tu aimeras le Seigneur, ton Dieu, de tout ton cœur, de toute ton âme, et de toute ta pensée. C’est là le commandement le plus grand et le plus important. Et il y en a un second qui lui est semblable: « Tu aimeras ton prochain comme toi-même. »
 </p>
 
 <i>Bible d'étude Segond 21<br />
@@ -22,60 +16,71 @@ Enfin, frères et sœurs, portez vos pensées sur tout ce qui est vrai, tout ce 
 <br/>
 <center><h2>Méditons</h2></center>
 <br/>
+<p>
+«Comprendre la notion d’essentiel, c’est comprendre que, s’il nous manque l’essentiel, il nous manque tout.
 
-Quelle est votre réaction spontanée ?
+Pour mieux comprendre cette notion, voici une image de vacances :
+Si tu arrives à l’aéroport pour partir en voyage et que tu as avec toi ton curriculum vitae, tes diplômes universitaires, ton certificat d’études, ton permis de conduire, ton pass vaccinal et ta carte de crédit mais qu’il te manque ton passeport, tu ne passeras pas la douane. Tu ne monteras pas dans l’avion. Il te manque l’essentiel.
 
-<br/>
-<center><h2>Approfondissons</h2></center>
-<br/>
+Une autre illustration ? Imagine que tu te présentes devant la maison que tu as louée pour les vacances, avec vue sur la mer et piscine privée. Tu as en main toutes sortes de clés (maison, voiture, garage, coffre-fort, église, cadenas de vélo, cave, boîte aux lettres, etc.) sauf celles de la maison de vacances. Tu as beau avoir un trousseau impressionnant, tu n’entreras pas. Si tu n’as pas la clé de la location estivale, aucune autre clé ne t’aidera. Elles ne te serviront à rien.
+Il te manque l’essentiel.
 
-<p align="justify">
-Comme pour Paul, la joie est une force puissante dans nos vies.
-<br/><br/>
-Lorsque nous sommes remplis de joie, tout nous parait plus facile, n’est-ce pas? Nous nous sentons alors pousser des ailes, capables d’affronter les obstacles les plus effrayants. Notre résistance est plus grande. Notre courage semble décuplé.
-<br/><br/>
-La joie est comme un médicament qui guérit et fortifie. Quand nous sommes joyeux, notre corps produit des tranquillisants naturels. Lorsque nous rions, par exemple, nous sécrétons de l’endomorphine, qui est une hormone liée au bien-être ayant des effets d’euphorisant naturel.
-<br/><br/>
-Le rire stimule également la production d’anticorps qui nous aident à résister aux maladies. Rabelais disait à son époque "Faire rire ses malades, c’est déjà les mettre en chemin de guérison".
-Vous avez déjà entendu que des clowns vont dans les hopitaux pour distraire et faire rire les enfants. Le simple fait pour les malades d’être exposés à la joie améliore leur état de santé.
-<br/><br/>
-Dieu nous a créés pour la joie et Il a imaginé cette magnifique émotion pour qu’elle soit une force dans nos vies. Celle-ci nous permettra de vivre dans notre environnement et de relever nos défis avec succès. Dieu aime nous voir débordants de joie.
-<br/><br/>
-L’apôtre Paul nous rappelle comme une recommandation dans Philippiens 4:4 <i>« Réjouissez-vous dans le Seigneur, je le répète réjouissez-vous… ne vous inquiétez de rien »</i>. Nous voyons l’insistance de Paul qui oppose la joie dans  le Seigneur aux inquiétudes.
-<br/><br/>
-La Bible mentionne différents types de joies :<br/>
-* La joie naturelle (contentement, satisfaction, gaieté)<br/>
-* La joie morale (paix, sérénité)<br/>
-* La joie spirituelle, que l’on appelle également « la joie du Seigneur ». <br/>
-Elle nous vient de Dieu et elle est voulue par Lui pour être notre force.
-<br/><br/>
-Néhémie la connaissait : <i>« La joie du Seigneur est ma force »</i> disait-il (Né. 8 :10)
-<br/><br/>
-Cette joie particulière vient du dedans de nous. Elle est le résultat de notre confiance en un Dieu bienfaisant et fidèle. Elle nous est donnée pour nous aider à traverser la vie et ses revers. C’est la raison pour laquelle l’ennemi cherche constamment à te dépouiller de ta joie. Il sait que ton coeur remplib de la joie du Seigneur, te rendra résistant, fort, courageux et victorieux.
-<br/><br/>
-C’est pour cela qu’il est important de rechercher la joie au bon endroit. Ne la cherchons pas au mauvais endroit, par exemple : à l’extérieur de nous ou bien dans les choses matérielles de ce monde.
-<br/><br/>
-Le Seigneur Jésus a promis que la joie qu’Il a en réserve pour toi est toujours disponible, et que nul ne pourra te la ravir (Jean 16).
+Comprendre la notion d’essentiel, c’est comprendre que si une personne ou un groupe possède toutes les qualités du monde (ponctualité, gentillesse, politesse, générosité, etc.) mais n’a pas l’essentiel, alors il ne lui manque pas que l’essentiel : il lui manque tout !
+<hr />
+<center><b>
+Quand on n’a pas l’essentiel, on n’a rien.
+Quand on ne possède plus l’essentiel,
+on ne possède plus rien.
+</b></center>
+<hr />
+Pour Jésus, il y a deux essentiels. Deux commandements jumeaux. L’amour de Dieu et l’amour du prochain. Tous les deux indissociables. Tous les deux inséparables.
+
+Le plus important, ce n’est pas de croire ou de connaître – même par cœur – les lois édictées par Dieu. Le plus important, c’est d’aimer.
+Aimer Dieu. Entièrement.
+Aimer son prochain. Concrètement.
+
+Soit on le possède et on a tout ; soit on ne le possède pas et on n’a rien.
+Beaucoup croient savoir ce qu’est l’amour. Beaucoup aiment en parler.
+Plusieurs seraient même capables d’en donner une définition juste et émouvante.
+
+Mais pour Dieu, l’essentiel n’est pas de savoir quelque chose de théorique sur l’amour. L’essentiel, c’est d’aimer.
+Jésus n’est pas venu élaborer une théorie sur l’amour. Il est venu aimer.
+Il reflétait en cela le cœur de Dieu.
+
+« Tu aimeras. » C’est l’essentiel.
+Force est de constater qu’on a de la peine à le mettre en pratique. Tous
+<hr />
+<center><b>
+Pourtant, l’essentiel est là :« Tu aimeras. »
+</b></center>
+<hr />
 </p>
 
 <br/>
-<center><h2>Et si on priait ?</h2></center>
+<center><h2>Prière</h2></center>
 <br/>
 
 <p align="justify">
-Apportons au Seigneur, dans l’esprit du texte de Philippiens, ce qui nous semble lourd en ce moment. Demandons Lui un renouvellement de notre joie et de notre paix.
-<br/><br/>
-Prions que la puissance du Saint-Esprit travaille en nous, pour nous transformer, afin que notre relation avec Lui soit empreinte de joie et de reconnaissance : nous Lui devons TOUT.
-<br/><br/>
-Prions pour le secteur enfance et jeunesse de l’église, afin que le vécu dans les différents groupes apporte aux enfants et aux jeunes la joie dans ces temps de pandémie.
-<br/><br/>
-Prions pour un affermissement de la foi chez les jeunes en préparation au baptême.
+
+*Seigneur, je n’arrive pas à véritablement aimer. Je reconnais mon manque d’amour, mon manque d’envie d’aimer.
+Je te demande pardon et je reçois de toi le pardon dont j’ai tant besoin.
+Je résiste à la pensée qu’il serait normal et juste d’en rester là.
+Je remplace ce manque d’envie par un désir d’aimer qui vient de toi.
+J’aspire à recevoir de toi l’amour que tu me demandes de prodiguer autour de moi.
+
+*Prions pour le secteur enfance et jeunesse de l’église, afin que le vécu dans les différents groupes apporte aux enfants et aux jeunes la joie dans ces temps troublés.
+
+*Prions pour l’affermissement de la foi chez les jeunes baptisés et futurs baptisés.
+
+*Prions pour que les parents sachent communiquer les bonnes priorités aux enfants
+
+*Prions pour les jeunes qui ne viennent plus à l'église, que la pensée de Dieu qui leur a été communiquée puisse les travailler en profondeur, que le St Esprit agisse dans leur vie et qu'ils puissent revenir à Dieu
 </p>
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/IokcIvRygKo" 
+<iframe src="https://www.youtube.com/embed/5u1JAFzRLLY"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
 [Jour précédent](jours.md)<br/> <> <br/>
-[Jour suivant - Lundi 15](lundi.md)
+[Jour suivant - Lundi 14](lundi.md)
