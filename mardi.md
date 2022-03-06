@@ -51,7 +51,7 @@ Nous ne sommes pas changés. Nous sommes soulagés. C’est différent.
 <center><b>
 La miséricorde allège le cœur de l’homme mais ne le transforme pas.<br />La grâce seule le métamorphose.</b></center>
 </p><p>
-<p>
+
 Jésus - dont le nom signifie « Dieu sauve » en hébreu - n’est pas mort uniquement pour que nous soyons pardonnés de nos péchés et pour que la porte du ciel s’ouvre pour nous.
 </p><p>
 
