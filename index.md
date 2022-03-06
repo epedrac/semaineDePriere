@@ -1,4 +1,4 @@
-# Semaine de prière - Choisis la joie !
+# Semaine de prière - Aimer l'essentiel !
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
 <h1>Aimer l’essentiel</h1>
