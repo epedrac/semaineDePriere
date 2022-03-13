@@ -65,7 +65,7 @@ Pour mieux l’aimer, il ne faut pas mieux le vouloir ou mieux Lui obéir.
 
 
 Pour mieux l’aimer, il faut mieux Le connaître.
-</p>
+
 
 
 </p>
