@@ -106,7 +106,6 @@ Reste une question, stratégique et décisive pour ma guérison : dans la cla
 <center><h2>Et si on priait ?</h2></center>
 <br/>
 
-<p align="justify">
 
 * La guérison de l’âme passe par une repentance sincère. De quelles guérisons ton âme a-t-elle besoin aujourd’hui ?
 
@@ -124,7 +123,7 @@ Si ce n’est pas le cas, cherche bien, dans la pile de dossiers, la feuille de 
 
 * Prions pour que notre besoin de vivre la réalité du corps, interaction les uns avec les autres ne soit pas une option, mais un besoin vital.
 
-</p>
+
 
 <div class="container">
 <iframe src="https://www.youtube.com/embed/EX_RjTDApQE"
