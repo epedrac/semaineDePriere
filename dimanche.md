@@ -88,7 +88,7 @@ Prions pour remercier Dieu pour tous les moyens qu’Il a prévu pour Le louer e
 les dons qu’Il donne à Son église.</li><li>
 Prions pour les membres qui constituent notre communauté, pour les personnes qui
 ont récemment rejoint notre assemblée, des plus petits aux plus grands.</li><li>
-Prions pour l’Église, et pour la joie de vivre la louange en communauté.</li></ul></p>
+Prions pour l’Église, et pour la joie de vivre la louange en communauté.</li></ul>
 <h2>Reconnaissance</h2>
 <p>« Particulièrement pendant toute la période de
 soins auxquels j'ai été soumise, l'amour de Dieu
