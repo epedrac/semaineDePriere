@@ -66,8 +66,8 @@ immédiatement, ou de la façon dont j’espérais ?</li></ul>
 <br/>
 
 <p align="justify">
-
-* Seigneur, je Te remercie pour le bonheur de savoir que Tu m’écoutes vraiment.
+<ul><li>
+Seigneur, je Te remercie pour le bonheur de savoir que Tu m’écoutes vraiment.
 Pardon pour toutes les fois où j’abandonne et je ne crois plus que Tu es là.
 Accorde-moi la joie de Te prier, même si je ne reçois pas l’exaucement
 immédiatement, ou de la façon dont j’espérais.
@@ -75,16 +75,17 @@ Je renouvelle ma confiance en Toi parce que Tu sais mieux que moi ce dont j’ai
 Ta grâce me suffit pleinement. Aide-moi à vivre la joie et la certitude que Tu es vivant
 et agissant à tout instant dans ma vie.
 Merci d’être le Dieu merveilleux que Tu es.
-* Que Dieu fortifie nos coeurs et renouvelle nos pensées lorsque nous sommes
+</li><li>Que Dieu fortifie nos coeurs et renouvelle nos pensées lorsque nous sommes
 découragés de prier.
-* Que nous soyons encouragés à persévérer dans nos prières pour les malades, les
+</li><li>Que nous soyons encouragés à persévérer dans nos prières pour les malades, les
 personnes qui souffrent au près comme au loin.
-* Prions pour l’équipe des responsables et des anciens ; qu’elle puisse prendre les
+</li><li>Prions pour l’équipe des responsables et des anciens ; qu’elle puisse prendre les
 décisions avec sagesse, et dans l’unité de l’Esprit. Prions également pour l’avenir de
 l’église (la formation de nouveaux responsables, le recrutement d’un nouveau
 pasteur...)
-* Prions pour l’équipe de l’AFP ACTES ; qu’elle puisse mettre en place des projets pour
+</li><li>Prions pour l’équipe de l’AFP ACTES ; qu’elle puisse mettre en place des projets pour
 partager l’Evangile en dehors de l’église
+</li></ul>
 </p>
 
 <h2>Témoignage</h2>

@@ -74,17 +74,15 @@ des tourments.
 Merci pour la paix que Tu procures même au coeur de l’agitation ; continue Ton
 oeuvre en moi afin que je me confie en Toi et que j’aie l’assurance que Tu ne nous
 abandonneras pas.
-
-* Remettons à Dieu notre combat pour trouver la paix dans nos pensées.
-
-* Prions pour les chrétiens qui oeuvrent au sein de la justice et dans le monde politique ; qu’ils puissent être porteurs de paix et de vérité.
-
-* Prions pour la situation économique et politique de notre pays et du monde, pour
-que les tensions et les conflits cessent.
-
-* Prions pour ceux qui sont persécutés pour leur foi ; que des portes puissent
-s’ouvrir afin que l’Evangile de Paix soit proclamé.
 </p>
+<ul><li>
+Remettons à Dieu notre combat pour trouver la paix dans nos pensées.
+</li><li>Prions pour les chrétiens qui oeuvrent au sein de la justice et dans le monde politique ; qu’ils puissent être porteurs de paix et de vérité.
+</li><li>Prions pour la situation économique et politique de notre pays et du monde, pour
+que les tensions et les conflits cessent.
+</li><li>Prions pour ceux qui sont persécutés pour leur foi ; que des portes puissent
+s’ouvrir afin que l’Evangile de Paix soit proclamé.
+</li></ul>
 <h2>Témoignage</h2>
 « Le fait de savoir que l’église prie pour moi a
 été un vrai soutien dans les moments où
