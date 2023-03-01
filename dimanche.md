@@ -1,87 +1,106 @@
-# Dimanche 13
+# Dimanche 12
 
-## L’essentiel
+## Le bonheur de louer Dieu
 <br/>
-<center><h2>Matthieu 22 : 36-40 </h2></center>
+<center><h2>Psaumes 100</h2></center>
 <br/>
 
 <p align="justify">
-« Maître, quel est, dans la Loi, le commandement le plus grand ?
-Jésus lui répondit : « Tu aimeras le Seigneur, ton Dieu, de tout ton cœur, de toute ton âme, et de toute ta pensée. C’est là le commandement le plus grand et le plus important. Et il y en a un second qui lui est semblable: « Tu aimeras ton prochain comme toi-même. »
+« Poussez des cris de joie en l’honneur de l’Eternel,
+habitants de toute la Terre ! »
 </p>
-
-<i>Bible d'étude Segond 21<br />
-© 2007 Société Biblique de Genève</i>
 
 <br/>
 <center><h2>Méditons</h2></center>
 <br/>
 <p>
-«Comprendre la notion d’essentiel, c’est comprendre que, s’il nous manque l’essentiel, il nous manque tout.
-<br/>
-Pour mieux comprendre cette notion, voici une image de vacances :
-Si tu arrives à l’aéroport pour partir en voyage et que tu as avec toi ton curriculum vitae, tes diplômes universitaires, ton certificat d’études, ton permis de conduire, ton pass vaccinal et ta carte de crédit mais qu’il te manque ton passeport, tu ne passeras pas la douane. Tu ne monteras pas dans l’avion. Il te manque l’essentiel.
-<br/>
-Une autre illustration ? Imagine que tu te présentes devant la maison que tu as louée pour les vacances, avec vue sur la mer et piscine privée. Tu as en main toutes sortes de clés (maison, voiture, garage, coffre-fort, église, cadenas de vélo, cave, boîte aux lettres, etc.) sauf celles de la maison de vacances. Tu as beau avoir un trousseau impressionnant, tu n’entreras pas. Si tu n’as pas la clé de la location estivale, aucune autre clé ne t’aidera. Elles ne te serviront à rien.
-Il te manque l’essentiel.
-<br/>
-Comprendre la notion d’essentiel, c’est comprendre que si une personne ou un groupe possède toutes les qualités du monde (ponctualité, gentillesse, politesse, générosité, etc.) mais n’a pas l’essentiel, alors il ne lui manque pas que l’essentiel : il lui manque tout !
-<hr />
-<center><b>
-Quand on n’a pas l’essentiel, on n’a rien.
-Quand on ne possède plus l’essentiel,
-on ne possède plus rien.
-</b></center>
-<hr />
-Pour Jésus, il y a deux essentiels. Deux commandements jumeaux. L’amour de Dieu et l’amour du prochain. Tous les deux indissociables. Tous les deux inséparables.
-<br/>
-Le plus important, ce n’est pas de croire ou de connaître – même par cœur – les lois édictées par Dieu. Le plus important, c’est d’aimer.
-Aimer Dieu. Entièrement.
-Aimer son prochain. Concrètement.
-<br/>
-Soit on le possède et on a tout ; soit on ne le possède pas et on n’a rien.
-Beaucoup croient savoir ce qu’est l’amour. Beaucoup aiment en parler.
-Plusieurs seraient même capables d’en donner une définition juste et émouvante.
-<br/>
-Mais pour Dieu, l’essentiel n’est pas de savoir quelque chose de théorique sur l’amour. L’essentiel, c’est d’aimer.
-Jésus n’est pas venu élaborer une théorie sur l’amour. Il est venu aimer.
-Il reflétait en cela le cœur de Dieu.
-<br/>
-« Tu aimeras. » C’est l’essentiel.
-Force est de constater qu’on a de la peine à le mettre en pratique. Tous
-<hr />
-<center><b>
-Pourtant, l’essentiel est là :« Tu aimeras. »
-</b></center>
-<hr />
+Nous aurons l’occasion de voir pendant la semaine comment Dieu vient nous
+rencontrer dans nos difficultés pour faire percer la joie malgré les épreuves. Mais on trouve
+aussi dans de nombreux psaumes, et notamment dans ceux qui parlent du rassemblement
+du peuple de Dieu, une invitation à une joie simple, qui laisse pour un temps de côté les
+questions, et qui se concentre simplement sur des vérités fondamentales : se rappeler qui
+est Dieu, et ce qu’Il a fait pour nous.</p><p>
+«C’est l’Éternel qui est Dieu » (v3) : La reconnaissance de l’existence d’un être suprêmement
+puissant et souverain devrait normalement être un sujet d’effroi. Si c’est pour nous un sujet
+de joie, c’est uniquement parce que ce Dieu est l’Éternel : celui qui est éternellement bon et
+qui accomplit son oeuvre d’amour avec une fidélité sans faille (v5).
+Cette combinaison de souveraineté et de bonté s’exprime tout particulièrement dans la
+façon dont l’Éternel entre en relation avec ses créatures et se forme un peuple, qu’Il aime,
+qu’Il conduit avec soin (v3).</p><p>
+Ainsi, en nous rassemblant le dimanche, nous retrouvons des dizaines d’exemples de
+l’oeuvre bienveillante et infiniment variée de Dieu, et cela devrait nous réjouir et nous
+remplir de reconnaissance (v4) !</p><p>
+Cette invitation à la joie est aussi accompagnée d’indications sur la façon dont elle devrait
+s’exprimer : d’une part par le service (v2), en voulant contribuer (joyeusement donc) à la vie
+de ce peuple que Dieu s’est créé. Et aussi par l’adoration, collective, et même bruyante (v1) !</p><p>
+On retrouve d’ailleurs dans les psaumes au-moins une vingtaine de fois cette invitation à
+pousser des cris de joie en l’honneur de l’Éternel.
+Par exemple dans le psaume 89, au verset 16 :*Seigneur, merci pour la joie qu’il y a à Te louer, tant de façon personnelle que
+communautaire.
+Même si je sais que Tu ne comptes pas les décibels et que Tu regardes au coeur, je
+veux manifester ma joie, l’exprimer pleinement au travers des moyens variés qui
+existent pour le faire (musique, chant, danse, écriture, art, ...)
+Apprends-moi à Te louer en toutes circonstances, même quand c’est plus difficile de le
+faire, dans les moments de sécheresse, de fatigue ou de doute.
+J’aspire à être heureux/heureuse de savoir crier de joie pour Toi, Seigneur !
+*Prions pour remercier Dieu pour qui Il est, pour l’infinie richesse des raisons de Le
+louer.
+*Prions pour remercier Dieu pour tous les moyens qu’Il a prévu pour Le louer et pour
+les dons qu’Il donne à Son église.
+*Prions pour les membres qui constituent notre communauté, pour les personnes qui
+ont récemment rejoint notre assemblée, des plus petits aux plus grands.
+*Prions pour l’Église, et pour la joie de vivre la louange en communauté.
+« <b>Ils sont heureux, ceux qui savent crier de joie pour Toi, Seigneur !</b> »</p><p>
+Cela ne veut sans doute pas nécessairement dire se forcer à crier à tue-tête si cela ne fait
+pas partie de notre registre naturel d’expression, mais on peut certainement y voir un
+encouragement à ce que notre joie dans la louange soit au-moins aussi expressive et visible
+que celle que nous pouvons montrer dans d’autres occasions de la vie !
+</p><p>Alors apportons à l’Éternel notre adoration !
 </p>
-
-<br/>
-<center><h2>Prière</h2></center>
-<br/>
-
-<p align="justify">
-
-Seigneur, je n’arrive pas à véritablement aimer. Je reconnais mon manque d’amour, mon manque d’envie d’aimer.
-Je te demande pardon et je reçois de toi le pardon dont j’ai tant besoin.
-Je résiste à la pensée qu’il serait normal et juste d’en rester là.
-Je remplace ce manque d’envie par un désir d’aimer qui vient de toi.
-J’aspire à recevoir de toi l’amour que tu me demandes de prodiguer autour de moi.
-<br/>
-<ul><li>
-Prions pour le secteur enfance et jeunesse de l’église, afin que le vécu dans les différents groupes apporte aux enfants et aux jeunes la joie dans ces temps troublés.
-</li><li>
-Prions pour l’affermissement de la foi chez les jeunes baptisés et futurs baptisés.
-</li><li>
-Prions pour que les parents sachent communiquer les bonnes priorités aux enfants
-</li><li>
-Prions pour les jeunes qui ne viennent plus à l'église, que la pensée de Dieu qui leur a été communiquée puisse les travailler en profondeur, que le St Esprit agisse dans leur vie et qu'ils puissent revenir à Dieu
+<h2>A memoriser</h2>
+<p>Soyez remplis de l’Esprit : dites-vous des psaumes, des hymnes
+et des cantiques spirituels ; chantez et célébrez de tout votre
+coeur les louanges du Seigneur ; remerciez constamment Dieu le
+Père pour tout, au nom de notre Seigneur Jésus-Christ ;
+soumettez-vous les uns aux autres dans la crainte de Dieu. »
+Éphésiens 5.18-20</p>
+<h2>Questions pratiques</h2>
+<ul>
+<li>
+Comment est-ce que je vis chaque jour ma louange dans ma marche avec Dieu ?  / Est-ce que j’ai de la joie à Le louer ?</li><li>
+Quels sont les attributs de Dieu pour lesquels j’aime particulièrement Le louer ? /
+Y a-t-il d’autres attributs auxquels j’ai moins pensé récemment, et pour lesquels je peux
+L’adorer particulièrement aujourd’hui ?</li><li>Comment puis-je exprimer ma joie d’appartenir au peuple de Dieu ?
+Suis-je actuellement joyeu(x)se dans mon service ?
 </li></ul>
-</p>
-
+<h2>Prière</h2>
+<p>Seigneur, merci pour la joie qu’il y a à Te louer, tant de façon personnelle que
+communautaire.
+Même si je sais que Tu ne comptes pas les décibels et que Tu regardes au coeur, je
+veux manifester ma joie, l’exprimer pleinement au travers des moyens variés qui
+existent pour le faire (musique, chant, danse, écriture, art, ...)
+Apprends-moi à Te louer en toutes circonstances, même quand c’est plus difficile de le
+faire, dans les moments de sécheresse, de fatigue ou de doute.
+J’aspire à être heureux/heureuse de savoir crier de joie pour Toi, Seigneur !</p><ul><li>
+Prions pour remercier Dieu pour qui Il est, pour l’infinie richesse des raisons de Le
+louer.</li><li>
+Prions pour remercier Dieu pour tous les moyens qu’Il a prévu pour Le louer et pour
+les dons qu’Il donne à Son église.</li><li>
+Prions pour les membres qui constituent notre communauté, pour les personnes qui
+ont récemment rejoint notre assemblée, des plus petits aux plus grands.</li><li>
+Prions pour l’Église, et pour la joie de vivre la louange en communauté.</li></ul></p>
+<h2>Reconnaissance</h2>
+<p>« Particulièrement pendant toute la période de
+soins auxquels j'ai été soumise, l'amour de Dieu
+s'est manifestée en moi à travers le soutien actif
+tant par la prière que par l'attention délicate et
+encourageante de mes proches, ainsi que des
+frères et soeurs de l'église auxquels j'adresse
+encore une fois ma profonde reconnaissance. »
+Eva</p>
 <div class="container">
-<iframe src="https://www.youtube.com/embed/5u1JAFzRLLY"
+<iframe src="https://www.youtube.com/embed/QHZ9RWDVccM"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent](jours.md) -<>- [Jour suivant - Lundi 14](lundi.md)
+[Jour précédent](jours.md) -<>- [Jour suivant - Lundi 13](lundi.md)

@@ -1,66 +1,63 @@
-# Vendredi 18
-## De toute ta pensée renouvelée
+# Vendredi 17
+## Le bonheur de trouver la paix
 
 
 <br/>
-<center><h2>Romains 12:2</h2></center>
+<center><h2>Psaumes 94</h2></center>
 <br/>
 
 <p align="justify">
-“Ne vous laissez pas modeler par le monde actuel, mais laissez-vous transformer par le renouvellement de votre pensée, pour pouvoir discerner la volonté de Dieu : ce qui est bon, ce qui lui plaît, ce qui est parfait.”
+« Quand mon coeur est agité par une foule de pensées,
+tes consolations me rendent la joie. »
+Psaumes 94.19
 </p>
-
-<i>Bible d'étude Segond 21<br />
-© 2007 Société Biblique de Genève</i>
 
 <br/>
 <center><h2>Méditons</h2></center>
 <br/>
 <p>
-Aimer Dieu de toute sa pensée, c’est penser dans le bon sens.
-Avoir une intelligence renouvelée par Lui, orientée vers Lui.
-Faire de Sa logique à Lui, ma logique à moi.
-</p><p>
-Évidemment, cela nécessite de se laisser transformer, parce que, naturellement, l’être humain ne naît pas avec le désir de faire la volonté de Dieu.
-La nouvelle naissance entraîne aussi un changement dans nos pensées. Comme si Dieu les prenait par le menton et les orientait dans la bonne direction en nous disant : « Pense par-là, mon fils, ma fille. Pense avec moi. »
-</p><p>
-<center><b>Ma pensée a été créée pour aimer Dieu,
-pour aimer penser ce qui est juste et bon. </b></center>
-</p><p>
-Aimer Dieu de toute sa pensée, c’est vivre avec une pensée, une réflexion, une intelligence et des raisonnements, orientés entièrement dans la bonne direction, celle qui aime Dieu.
-</p><p>
-Mais aimer Dieu de toute sa pensée, ce n’est pas seulement répondre à la question :
-« Dans quelle direction je pense ? »
-C’est aussi se demander : « À quoi je pense ? Qu’est-ce qui habite ma pensée ? »
-</p><p>
-Imagine qu’on fasse un « diagramme camembert » de ce qui habite ta pensée sur ces six derniers mois. Quelle place prendraient le travail, les soucis, la culpabilité, la comparaison, les finances, les loisirs, la beauté, la nourriture ...?
-</p><p>
-Quel pourcentage de ton « temps de pensée » serait pris par les stratégies déployées pour parvenir à tes fins (plaisir, richesse, reconnaissance, réussite, etc.) ?
-</p><p>
-Dieu voit tout cela, tout le temps, en continu, quand Il nous regarde. Il nous conseille de l’aimer de toute notre pensée, car ce serait tellement plus reposant pour nous !
-</p><p>
-Imagine que ta pensée soit entièrement habitée par l’amour pour le bien.
-</p><p>
-Plus de culpabilité, puisque Dieu dit qu’il n’y a plus de condamnation pour ceux qui lui appartiennent.
-Plus de mauvaises pensées envers toi, puisque tu sais que Dieu t’aime inconditionnellement.
-Plus de mauvaises pensées envers les autres, puisque tu leur as accordé ton pardon.
-Plus de jalousie, puisque tu te réjouis de ce que Dieu t’a donné à toi et de ce qu’il a donné aux autres.
-Plus d’inquiétude, puisque tu sais que Dieu pourvoit.
-Plus de réflexion pour savoir comment être enfin heureux, puisque tu sais que tu n’as besoin de rien d’autre que cette relation vivante à Dieu qui nourrit ton cœur, ton âme et ta pensée.
- </p><p>
-Tu imagines ? C’est pour vivre cela que ta pensée a été créée. Retrouver cet état, c’est retrouver la liberté. </p><p>
-Il y a là un réel combat à mener dans nos pensées.
-Un combat pour trouver la paix et pour la conserver.
+En commençant la lecture du Psaume, vous vous êtes peut-être demandé si il n’y avait
+pas une erreur : va-t-on vraiment trouver de la joie et de la paix dans un texte qui parle de
+vengeance, qui s’adresse à des « idiots » et des « hommes stupides », et qui nous rappelle
+que nos pensées humaines sont « sans valeur » ?
 
-</p>
-<p>
-<center><b>“Ne vous mettez en souci pour rien, mais, en toute chose, exposez vos besoins à Dieu. Adressez-lui vos prières et vos requêtes,
-en lui disant aussi votre reconnaissance.
-Alors la paix de Dieu, qui surpasse tout ce qu’on peut concevoir, gardera votre cœur et votre pensée sous la protection de Jésus-Christ.”
-Philippiens 4:6-7
-</b></center>
+Ce psaume ne nie pas les difficultés de la vie, et n’évite pas les grands questionnements. Il
+n’en donne pas une grande explication, et ne propose pas de suivre une recette miracle en
+trois points faciles pour s’en sortir.
+
+La voie qui nous est proposée commence par l’effort d’apprendre à connaître notre Dieu et
+Sa loi, et de Le laisser intervenir en nous (v12). Mais en suivant ce chemin, on découvre le
+cadre inébranlable et réconfortant dans lequel toutes les difficultés s’inscrivent : « L’Eternel
+ne délaisse pas son peuple » (v14). Non, Dieu ne permettra pas que l’histoire se finisse mal.
+
+Et lorsque le psalmiste demande que quelqu’un combatte pour lui (v16), nous aujourd’hui,
+savons que Dieu a répondu à cette requête en envoyant Son fils Jésus Christ mourir pour
+nous et régler une fois pour toute la question du pêché et de l’injustice.
+
+Notre Dieu est celui qui ne change pas : Il est en toutes circonstances notre appui, Celui qui
+vient nous secourir, parce qu’Il est bon (v18).
+Il est aussi le Dieu parfaitement juste qui ne laissera pas le mal à jamais impuni. (v23)
+
+Et c’est ainsi que peut venir, malgré les incertitudes et les questions, la joie de l’apaisement :
+« quand mon coeur est agité par une foule de pensées, tes consolations me rendent la joie »
+(v19).
 </p>
 
+<h2>A mémoriser</h2>
+<p>« Ne vous inquiétez de rien, mais en toute chose faites connaître
+vos besoins à Dieu par des prières et des supplications, dans une
+attitude de reconnaissance. Et la paix de Dieu, qui dépasse tout ce
+que l’on peut comprendre, gardera votre coeur et vos pensées en
+Jésus-Christ. »
+Philippiens 4.6-7</p>
+<h2>Questions pratiques</h2>
+
+* Qu’est-ce qui agite mon coeur particulièrement en ce moment ?
+
+* Quels attributs de Dieu peuvent m’aider face à ces inquiétudes ?
+
+* Est-ce que j’ai déjà vécu la joie d’être consolé(e) par Dieu ? Comment est-ce que cela peut
+m’encourager dans mes circonstances actuelles ?
 
 <br/>
 <center><h2>Et si on priait ?</h2></center>
@@ -68,23 +65,40 @@ Philippiens 4:6-7
 
 <p align="justify">
 
-* Demandons à Dieu de nous sonder et de nous inspirer pour que notre esprit et nos pensées soient orientées vers Lui.
+* Seigneur je Te loue car Tu es un Dieu de justice.
+Merci parce que Tu as condamné le péché et que Tu as Toi-même enduré la sanction
+en Jésus Christ. Oui, Tu es venu résoudre le problème du péché ; mon péché qui me
+séparait de Toi, mais aussi le péché de notre monde qui m’indigne si souvent.
+Merci parce que Tu ne délaisses pas ton Peuple même au travers des épreuves et
+des tourments.
+Merci pour la paix que Tu procures même au coeur de l’agitation ; continue Ton
+oeuvre en moi afin que je me confie en Toi et que j’aie l’assurance que Tu ne nous
+abandonneras pas.
 
-* Remettons-Lui notre combat pour trouver la paix dans nos pensées.
+* Remettons à Dieu notre combat pour trouver la paix dans nos pensées.
 
-* L’église vit dans des transitions et des transmissions dans les ministères, que Dieu donne de la sagesse et du discernement en toutes choses.
+* Prions pour les chrétiens qui oeuvrent au sein de la justice et dans le monde politique ; qu’ils puissent être porteurs de paix et de vérité.
 
-* Que dans le processus de réflexion concernant le poste d’assistance diaconale, les responsables et l’église dans son ensemble puisse écouter Dieu.
+* Prions pour la situation économique et politique de notre pays et du monde, pour
+que les tensions et les conflits cessent.
 
-* Que Dieu pourvoit pour des futurs pasteurs, anciens, diacres, membres du Conseil d’Administration.
-
+* Prions pour ceux qui sont persécutés pour leur foi ; que des portes puissent
+s’ouvrir afin que l’Evangile de Paix soit proclamé.
 </p>
+<h2>Témoignage</h2>
+« Le fait de savoir que l’église prie pour moi a
+été un vrai soutien dans les moments où
+j’étais trop essoufflée pour prier moi-même.
+C’est la grande force de la communion dans la
+prière : savoir qu’on est tous liés par l’Esprit
+Saint.»
+Noémie
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/A_3IJpmytWs"
+<iframe src="https://www.youtube.com/embed/rcQvqyzgsNw"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Jeudi 17](jeudi.md)<br/> <> <br/>
-[Jour suivant - Samedi 19](samedi.md)
+[Jour précédent - Jeudi 16](jeudi.md)<br/> <> <br/>
+[Jour suivant - Samedi 18](samedi.md)
 

@@ -1,99 +1,83 @@
-# Samedi 19
-## De toute ta force, en action
+# Samedi 18
+## Le bonheur d’avoir un Dieu souverain
 
 <br/>
-<center><h2>2  Timothée  2 : 1</h2></center>
+<center><h2>Psaumes 96</h2></center>
 <br/>
 
-<p align="justify">« Toi donc, mon enfant, puise tes forces dans la grâce
-qui nous est accordée en Jésus-Christ. »
+<p align="justify">« Que les cieux se réjouissent, et que la terre soit dans l'allégresse,
+(…) car Il vient, Il vient pour gouverner la terre. »
+Psaumes 96.11;14
 </p>
 
-<i>Bible d'étude Segond 21<br />
-© 2007 Société Biblique de Genève</i>
 
 <br/>
 <center><h2>Méditons</h2></center>
 <br/>
 <p>
-Ma force, mon énergie et mon dynamisme ont-ils vraiment été créés pour aimer Dieu ?
-</p><p>
-Que nous devions aimer l’Éternel de tout notre cœur, notre âme, notre pensée, est assez logique dans le fond. Mais quand il s’agit de notre force, on ne sait pas vraiment comment s’y prendre.
-On s’imagine peut-être pouvoir chanter un peu plus fort, mais est-ce bien cela que vise le commandement d’aimer ?
-</p><p>
-Le problème que nous ressentons ici est un problème de culture. Imprégnée par la pensée grecque, notre éducation occidentale insinue que le monde des idées et du raisonnement est plus noble et plus spirituel que le monde de la matière et de la pratique.
-Notre culture nous pousse à croire que la vie « bien pensée » est plus spirituelle que la vie réelle.
-Seulement, c’est faux, contraire à l’enseignement biblique, contraire à la pensée de Dieu.
-</p><p>
-Si c’était vrai, Jésus ne serait pas venu en chair et en os. Il serait venu en pensée.
-</p><p>
-Mon corps, ma force, mon énergie, ne sont pas des empêchements pour accomplir la volonté de Dieu. Ce sont des outils.
-</p><p>
-Aimer l’Éternel de toute ta force, c’est l’aimer avec toute ta vigueur, ta créativité, ton énergie, ton corps, ta vie. Ça bouge, bon sang ! Ça bouge et c’est bon. C’est vivant !
-</p><p>
-Aimer l’Éternel de toute ta force, c’est sortir de la passivité.
-C’est agissant. Innovant. Activant. Passionnant.
-C’est mettre non seulement nos réflexions au service de ce grand Dieu qui nous aime, mais aussi nos actions, nos dons, nos projets.
-</p><p><center><b>
-Aimer l’Éternel de toute ma force,
-c’est mettre toute mon énergie
-pour que soit célébrée Sa gloire à Lui.</b></center>
-</p><p>
-Pour que soit ressenti par mes voisins Son amour à Lui.
-Pour que soient mises en pratique dans mon quotidien Ses valeurs à Lui.
-</p><p>
-La foi ne s’arrête pas à l’esprit, au cœur ou à l’âme. La foi ne s’arrête pas à l’intériorité de ma vie. Elle s’extériorise.
-</p><p>
-Ma foi nécessite mes pieds autant que mes pensées, mes mains autant que mes refrains.
-</p><p>
-J’apprécie cette mention « de toute ta force » parce qu’elle est active ! Elle m’engage.
-</p><p>
-Aimer Dieu de toute ma force, mon énergie, mes efforts, c’est prendre à bras le corps le projet de Dieu pour ce monde, et m’y consacrer. Ça demande de la ténacité, du courage, de l’envie et de la motivation.
-</p><p>
+Vous avez peut-être entendu que le chant « Comment ne pas te louer, Seigneur Jésus
+» a fait le buzz sur TikTok en ce début d’année : à partir d’une vidéo de lycéennes à Kinshasa
+(Congo), le refrain s’est propagé jusqu’à être vu plus de 60 millions de fois et être repris dans
+toute la francophonie dans près de 100 000 vidéos différentes.
 
-Peut-être que tu te dis : « Ok, c’est bien beau... mais mon travail me prend tellement d’énergie qu’à la fin de la journée, il ne me reste rien. Comment veux-tu que je fasse, moi, pour aimer Dieu de toute ma force ? »
-</p><p>
+On peut penser qu’une grande partie des personnes qui ont pris plaisir à chanter ces paroles
+n’avaient qu’une idée confuse de leur sens : beaucoup ont simplement expliqué qu’ils
+voyaient de la joie dans ce chant, et voulaient y participer.
 
-Notre énergie, notre force, ce n’est pas seulement ce que l’on fait, mais aussi la manière dont on le fait.
-Dans ton travail, tu peux mettre ton énergie à râler contre ce que tu dois faire, mais tu peux aussi mettre toute ton énergie à amener de la bonne humeur autour de toi.
-Et puis, aimer Dieu de toute ton énergie, c’est aussi L’aimer avec l’argent que te rapporte cette énergie.
-Si tu utilises dix pour cent de ce que cette énergie te fait gagner financièrement pour les redonner à des ministères ou des œuvres qui favorisent ce que Dieu aimerait voir fleurir sur la terre, alors tu participes, de toute ton énergie, à cette adoration.
-</p><p>
+Le Psaume 96 nous invite à avoir une joie qui est tout aussi communicatrice, tout aussi
+visible. Tout comme dans les paroles de « comment ne pas te louer » , l’expression de la
+louange débute par la constatation de la gloire et de la grandeur de Dieu (v3-6).
+Mais on se rend compte qu’une réelle compréhension de cette gloire ne peut pas s’exprimer
+seulement à travers la reprise joyeuse d’un refrain entraînant : elle conduit aussi à se
+prosterner, à trembler (v9) : non pas par peur, car l’Éternel est le Dieu du salut et de la
+justice, mais parce qu’aucune autre réaction n’est appropriée devant la souveraineté totale
+de Dieu.
 
-Aimer l’Éternel de toute sa force, c’est refuser l’inaction.
-Souvent, nos communautés chrétiennes sont connues pour ce qu’elles ne font pas : on ne fume pas, on ne dit pas de « gros mots », on ne trompe pas sa femme, on ne couche pas avant le mariage, on ne boit pas.... Bref, nous sommes connus pour ce qu’on ne fait pas.
-</p><p>
+Le texte pointe vers le moment où tous reconnaîtront cette souveraineté et se
+prosterneront devant l’Éternel qui règne.
+Pour nous qui avons déjà découvert la joie de connaître ce Dieu qui pardonne, qui écoute,
+qui secourt, qui donne la paix, nous avons le privilège, mais aussi la responsabilité, de
+participer activement à la préparation de cet événement, en annonçant jusqu’aux
+extrémités de la Terre la gloire de notre Dieu.
 
-Mais de qui se souvient-on parce qu’il n’a pas fait quelque chose ?
-</p><p>
-
-Arrêtons d’être connus pour ce que l’on ne fait pas. Soyons connus pour ce que l’on fait.
-Jésus, par sa Parole et son Esprit, ne nous incite pas uniquement à ne pas faire certaines choses.
-Il nous appelle, nous motive et nous équipe à faire quelque chose pour ce monde.
-Des actions qui détonnent. Des gestes qui cassent la logique humaine. Des victoires sur le mal.
-De l’amour au lieu de la haine. Des fleurs au milieu du désert. De toute notre force.
-
+Et dès maintenant, nous nous joignons à la création toute entière pour nous réjouir dans
+l’attente de cette venue (v11-12), car elle annonce le rétablissement de la justice, et la fin
+des larmes.
 </p>
+<h2>A mémoriser</h2>
+<p>« Toutes les créatures qui sont dans le ciel, sur la terre, sous la terre,
+sur la mer, tous les êtres qui s’y trouvent, je les entendis s’écrier :
+« A celui qui est assis sur le trône et à l’Agneau soient la louange,
+l’honneur, la gloire et la domination, aux siècles des siècles ! »
+Apocalypse 5.13</p>
+<h2>Questions pratiques</h2>
+
+* Est-ce que je me réjouis à la perspective du jour où Jésus reviendra ? Est-ce que j’ai déjà
+pensé de façon particulière à ce temps de fête et d’adoration ?
+* Est-ce que mon coeur déborde de joie et désire partager la source de cette joie à mon
+entourage ?
+* Comment est-ce que je peux participer à “raconter sa gloire parmi les nations” dès à
+présent ?
 
 ## Prions
-Prière :
 
-* Prenons du temps pour nous interroger sur la manière dont nous gérons nos forces et aussi sur ce que nos forces nous rapportent.
-
-* Si nous pouvions mettre toute notre énergie à aimer Dieu, qu’est-ce que nous entreprendrions ? Prenons un temps pour méditer ce sujet et pour réfléchir au premier pas à mettre en place pour réaliser ce projet.
-
-* Comment pouvons-nous être intentionnel dans ce domaine pour que notre force et ce qu’elle nous rapporte, servent à adorer Dieu ?
-
-* Que chacun puisse être au clair concernant son don (par la prière, le discernement, le désir de service et la reconnaissance des uns et des autres).
-
-* Que les responsables de l'église sachent multiplier les possibilités de service.
-
-* Que l'ensemble des dons puisse être pratiqué, pas seulement ceux dédiés au culte ou à l'enseignement, mais il y a aussi des besoins dans des secteurs comme la communication, l'administratif, la diaconie et l’action sociale.
+* Seigneur remplis-moi de la joie quotidienne et de l’espérance qui proviennent de
+mon désir de Te voir face à face, au jour de ton retour.
+Merci parce que Tu es l’Eternel, Celui qui mérite louange, honneur et gloire.
+Je veux me réjouir en pensant à ce concert final qui sera une fête extraordinaire !
+* Prenons du temps pour admirer la création et pour imaginer un concert à la gloire
+de notre Dieu.
+* Prosternons-nous déjà devant Dieu et Sa majesté ; rendons-Lui gloire de façon
+particulière aujourd’hui en L’honorant et en Le louant.
+* Prions pour l’Église avec un grand « E », pour l’unité des chrétiens et pour que
+l’Evangile soit proclamé au-delà de nos différences.
+* Prions pour la mission, et toutes les personnes qui oeuvrent en particulier au Tchad.
+* Pensons à nos frères et soeurs de Turquie et de Syrie ; qu’ils puissent être porteurs
+d’espérance et de joie dans ces temps difficiles.
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/mUoGrP2Uxr8"
+<iframe src="https://www.youtube.com/embed/Fy4gRLVuQJg"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Vendredi 18](vendredi.md)<br/> <> <br/>
-[Jour suivant - Dimanche 20](dimanche2.md)
+[Jour précédent - Vendredi 17](vendredi.md)<br/>

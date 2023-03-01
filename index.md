@@ -1,56 +1,59 @@
-# Semaine de prière - Aimer l'essentiel !
+# Semaine de prière - Au bonheur des Psaumes
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
-<h1>Aimer l’essentiel</h1>
+<h1>Au bonheur des Psaumes</h1>
 <p>
-Quels sont les effets de la connaissance et de l’amour de Dieu dans votre vie ?<br/>
-Comment « aimer selon le coeur de Dieu », dans notre quotidien, au travail, quand c’est difficile, ou même quand on n’en a pas envie ?
+« Heureux l’homme qui craint l’Eternel, qui trouve un grand plaisir à ses commandements.»<br/>
+Ps 112 . 1</p><p>
+« Jésus, vous ne l’avez pas vu, et pourtant vous l’aimez. Vous ne le voyez pas maintenant,
+et pourtant vous croyez en Lui. C’est pourquoi vous êtes remplis d’une très grande joie, une
+joie si grande qu’on ne peut même pas en parler. Cette joie, vous l’avez parce que vous êtes
+sauvés. »<br />
+1 Pierre 1.8-9<br />
 </p><p>
-Nous vous proposons pour cette semaine de prière d’approfondir le thème de l’année, et de survoler le livre «  Un moi pour aimer l’essentiel » de Gilles Geiser.<br />
-Ce livre propose un parcours de 30 jours d’approfondissement des deux commandements les plus importants selon Jésus : Aimer Dieu et aimer son prochain.<br />
-Le but de ce cheminement de 7 jours, ce n’est pas uniquement que nous en sachions plus sur Dieu, mais que les cercles relationnels, familiaux et professionnels dans lesquels nous vivons perçoivent la transformation que produit l’Evangile dans une vie.
-</p><p>
-Plusieurs occasions nous sont données dans la semaine pour vivre ce temps de prière tous ensemble. Profitons-en !
+Nous vous proposons pour cette semaine de prière d’approfondir le thème de l’année,
+« Avec Jésus, que du bonheur ? », et de survoler le livre des Psaumes à la recherche des
+« Heureux » qui le jalonnent (au total 26 mais nous n’en étudierons que 7 !).
 </p>
-<center><h1>Je participe avec les autres</h1></center>
+<p>Si Jésus a enseigné les célèbres béatitudes, ces « heureux » qui, à l’époque ont pu en ébranler
+certains, Il n’a jamais contredit les écrits de l’Ancien Testament qui, eux aussi, contiennent des
+« pépites de bonheur ».</p>
+<p>C’est pourquoi nous avons choisi de nous intéresser à quelques unes de ces pépites, des
+bonheurs « accessibles », que nous révèlent les différents auteurs des Psaumes.
+« Accessibles » signifiant que rien, ni les circonstances, ni ce que nous sommes, ce que nous
+faisons ou ne faisons pas, ne change ces vérités.
+Cela ne veut pas dire bonheurs « faciles » ou « immédiats » mais réels pour ceux qui croient,
+et nous espérons et vous encourageons à découvrir ces trésors disponibles pour chacun, au
+travers des méditations de la semaine et des occasions qui vous sont données pour vivre ces
+temps de prière tous ensemble.</p>
+<center><h1>Profitons-en :</h1></center>
 
-- Dimanche 13 Mars, 10H15<br/>
-Culte de louange
-
-- Mardi 15 Mars, 20H30-22H00<br/>
-Prière tous ensemble à l’église
-
-- Jeudi 17 OU Vendredi 18 Mars, 20H15 -22H00<br/>
-Prière dans les groupes de quartier
-
-- Samedi 19 Mars, 9h30 - 11h<br/>
- Atelier féminin à l’église
-
-- Samedi 19 Mars 12h à 16h30
- Prions ensemble, coeur à coeur avec Dieu - Durant cet après-midi, nous voudrions clôturer la semaine par un bouquet de prières ensemble et en continu. Chacun sera invité à suivre un chemin de prières et ainsi rendre vivantes l'adoration, l'intercession, la louange et la confession. <br />
-Vous aurez la possibilité de venir prier le temps que vous souhaitez. Une demi-heure, une heure, plus encore si tel est votre souhait ou bien l'après-midi entière... Il vous sera proposé des temps ensemble, en groupe, sur des sujets et supports ciblés, mais aussi la possibilité  d'aller prier en binôme dans le quartier pour le quartier. Ainsi que des temps spécifiques plus intimes pour prier pour vos besoins personnels
-
-- Samedi 19 Mars, 17h à 21h30<br/>
- Rencontre pour les jeunes 12/25 ans  à l’église, Au programme : jeux, partage, témoignages, prière et pizza !!!
-
-- Dimanche 20 mars, 10h15<br/>
-Culte
+- Dimanche 12 Mars, 10H15 Culte de louange
+- Lundi 13, mercredi 15 et vendredi 17 mars de 12h15 à 13h15 : Prière à l’église et par zoom (possibilité de pique-niquer sur place)
+- Mardi 14 mars de 20h30 à 22h : Prière tous ensemble à l’église
+- Mercredi 15 ou Jeudi 16 mars de 20h30 à 22h : Prière dans les groupes de maison
+- Samedi 18 mars de 13h30 à 16h : Balade et prière : Durant cet après-midi, nous voudrions clôturer la semaine par un
+temps ouvert à tous, jeunes et moins jeunes.
+Michel nous guidera dans une balade d’1 heure, accessible tous
+niveaux, et nous pourrons au travers des différents paysages
+rencontrés, prier dans la nature, en petits groupes ou
+individuellement.
+Venez nombreux !
 
 <center><h1>Je participe en ligne</h1></center>
 
 - [Dimanche](dimanche.md)
- 13 - L’essentiel
+ 12 - Le bonheur de louer Dieu
 - [Lundi](lundi.md)
- 14 - Tu aimeras
+ 13 - Le bonheur d’être pardonné
 - [Mardi](mardi.md)
- 15 - Le Seigneur ton Dieu
+ 14 - Le bonheur d’être écouté
 - [Mercredi](mercredi.md)
- 16 - De tout ton coeur transformé
+ 15 - Le bonheur d’obéir à la Loi de Dieu
 - [Jeudi](jeudi.md)
- 17 - De toute ton âme guérie
+ 16 - Le bonheur de se réfugier en Dieu
 - [Vendredi](vendredi.md)
- 18 - De toute ta pensée renouvelée
+ 17 - Le bonheur de trouver la paix
 - [Samedi](samedi.md)
- 19 - De toute ta force, en action
-- [Dimanche de clôture](dimanche2.md)
- 20 - Ton prochain comme toi-même
+ 18 - Le bonheur d’avoir un Dieu souverain
+

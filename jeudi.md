@@ -1,16 +1,15 @@
-# Jeudi 17
-## De toute ton âme guérie
+# Jeudi 16
+## Le bonheur de se réfugier en Dieu
 <br/>
-<center><h2>Galates 2 : 20
+<center><h2>PPsaumes 16
 </h2></center>
 <br/>
 
-<p align="justify">« Ce n’est plus moi qui vis, c’est Christ qui vit en moi. »
+<p align="justify">« Je dis à l’Eternel : “Toi, tu es mon Seigneur,
+et mon bonheur est en toi seul.»
+Psaumes 16.1
 
 </p>
-
-<i>Bible d'étude Segond 21<br />
-© 2007 Société Biblique de Genève</i>
 
 <br/>
 <center><h2>Méditons</h2></center>
@@ -19,116 +18,104 @@
 
 
 <p align="justify">
-L’âme, c’est cette partie de mon être qui me permet de ressentir, de choisir et de réfléchir.
-</p><p>
-Aimer Dieu de toute mon âme, c’est l’aimer avec toutes mes émotions, toute ma volonté et toute ma pensée.
-Mais l’âme, soyons honnêtes, c’est aussi cette dimension de mon existence qui est la plus blessée, la plus meurtrie.
-Blessée par le mal qu’on m’a fait. Blessée par le mal que j’ai fait. Et tellement lente, en plus, à cicatriser.
-</p><p>
-Mon âme est profondément marquée par les blessures relationnelles que l’on m’a infligées. C’est à ce niveau que se situe notre mémoire émotionnelle. Y sont stockées les paroles offensantes proférées il y a plusieurs années ; ces paroles qui nous font encore pleurer comme si c’était hier qu’elles avaient été prononcées.
-</p><p>
-L’âme est aussi le lieu où viennent se ranger les blessures que j’ai moi-même occasionnées. Celles dont je suis conscient, celles que j’ai faites exprès et que je n’arrive pas à m’expliquer. Celles aussi que je refuse de remettre en question parce que je me crois en droit de crier vengeance.
+Nous sommes nombreux à nous sentir souvent débordés, et ce psaume qui nous
+parle du bonheur d’une vie moins encombrée peut nous parler !
+
+La vie du roi David n’était certainement pas simple et reposante : on peut imaginer qu’il
+avait des dizaines de problèmes à gérer chaque jour et de nombreuses raisons de
+s’inquiéter. Et pourtant, il nous partage ici la tranquillité et le bonheur qu’il a pu trouver en
+faisant un choix radical : face à la tendance humaine qui consiste à remplir sa vie de
+nombreuses choses (v4) en espérant qu’elles apporteront une part de bonheur et de
+satisfaction, David fait au contraire le choix de se concentrer sur un seul but : se réfugier en
+l’Éternel. Cette démarche apparaît comme un engagement personnel ferme, que David
+répète plusieurs fois (v2,v4,v5), mais qui se vit aussi en communauté (v3).
+
+Si ce choix est à contre-courant, on en voit tous les bénéfices : un coeur qui est dans la joie,
+un esprit dans l’allégresse (v9). Il est intéressant de voir que ce n’est pas l’espace libéré ou le
+temps dégagé par ce désencombrement qui apportent le bonheur.
+La vie qui nous est décrite semble au contraire bien remplie, de choses belles et délicieuses
+(v6) ! Mais elle semble plus simple, parce que la direction à suivre est claire : c’est celle qui
+est indiquée par l’Éternel (v7-8). Elle aboutit à une confiance et une tranquillité à chaque
+étape de la vie, et au-delà, puisque même la mort ne peut pas mettre un terme à ce
+bonheur qui se trouve dans la présence de Dieu (v10-11).
+
+Dans le nouveau testament, Pierre et Paul appliquent le verset 10 à la résurrection de Jésus
+(Actes 2.26-28, Actes 13.35). Et puisque nous savons que cette même puissance mise en
+oeuvre dans la résurrection se manifeste envers nous (Éphésiens 1.19), nous avons vraiment
+toutes les raisons de faire le choix d’une vie abritée en l’Éternel.
 </p>
 
+<h2>Questions pratiques</h2>
+* Qu’est-ce qui encombre ma vie actuellement ?
 
-<p>
-<b>
-<center>
-Il y avait un homme qui descendait de Jérusalem à Jéricho, quand il fut attaqué par des brigands. Ils lui arrachèrent ses vêtements, le rouèrent de coups et s’en allèrent, le laissant à moitié mort. (…)<br />
-Un Samaritain qui passait par là arriva près de cet homme.<br />
-En le voyant, il fut pris de pitié.<br />
-Il s’approcha de lui, soigna ses plaies avec de l’huile et du vin,
-et les recouvrit de pansements.<br />
-Puis, le chargeant sur sa propre mule, il l’emmena dans une auberge où il le soigna de son mieux. <br />Le lendemain, il sortit deux pièces d’argent, les remit à l’aubergiste et lui dit :<br />
-« Prends soin de cet homme, et tout ce que tu aurais dépensé en plus, je te le rembourserai moi-même quand je repasserai. »<br /><br />
-Luc 10:33-35
+* Quels sont les domaines de ma vie où j’ai particulièrement besoin de demander à Dieu sa
+direction en ce moment ?
 
-</center>
-</b>
-</p>
-
-
-
-<p>
-Imagine que l’homme qui descendait de Jérusalem à Jéricho, ce soit toi. Une fois soigné et sorti de l’auberge, de quoi est-ce que tu te souviendrais le plus ? Que garderais-tu en mémoire ? Que soulignerais-tu en racontant ton histoire ?
-Ce que les brigands ont fait contre toi ?
-Ce que les religieux n’ont pas fait pour toi ? Ce que le Samaritain a fait pour toi ?
-Parce que tout dépend de cela. La guérison de ton âme se joue là.
-Qu’est-ce que je mets au premier plan ? Les blessures de mes agresseurs ou les soins de mon sauveur ?
-</p><p>
-Nous sommes marqués par les épreuves de la vie. Obligatoirement. Personne ne passera à côté de la souffrance dans ce monde. Le manque d’amour, les blessures, les insultes, les rejets, les déficits d’attention, les abandons, tout cela s’inscrit dans notre âme. Ça la marque. Ça la blesse. Ça la rend colérique et amère.
-</p><p>
-
-Sans l’action de Dieu dans ma vie, la source d’eau où puise mon âme demeure saumâtre, salée, imbuvable. Le temps n’y changera rien...
-Alors, pour se protéger, comme par réflexe, l’âme humaine se fabrique une carapace. Elle se durcit, elle se fait rugueuse et rêche... mais elle ne guérit pas.
-</p><p>
-
-On ne guérit pas un cancer en mettant une cotte de mailles dessus. On le soigne.
-On ne guérit pas une âme en mettant une carapace dessus. On la soigne.
-</p><p>
-
-Mon âme n’a pas seulement besoin d’être protégée. Elle a besoin d’être soignée. Elle a besoin d’être guérie.
-</p><p>
-
-Aimer l’Éternel de toute mon âme, c’est ouvrir mon âme à l’action de l’amour de Dieu.
-Pour qu’il la guérisse. Pour qu’il opère en elle les guérisons que lui seul peut apporter, au travers des repentances et des pardons que moi seul je peux vivre.
-</p><p>
-
-Aimer l’Éternel de toute son âme, c’est l’aimer de toute son âme guérie.
-Une âme guérie, c’est une âme libérée du mal qu’elle a commis.
-</p><p>
-
-Non pas parce que ce n’était pas grave mais parce que le pardon de Dieu a été plus fort.
-</p><p>
-
-La guérison de l’âme porte un nom : le pardon.
-</p><p>
-
-Il peut être à accorder ou à demander, à donner ou à recevoir.
-</p><p>
-
-Une âme guérie, c’est une âme pour laquelle le goût de l’amour de Dieu et de son pardon domine toutes les autres saveurs.
-Une âme pour laquelle le goût de la grâce domine celui de la condamnation, le goût de la libération domine celui de la honte, le goût du pardon domine celui de l’apitoiement.
-</p><p>
-
-Une âme guérie, c’est une âme dans laquelle Jésus vit, à laquelle il parle, et dans laquelle il opère son ministère de guérison.
-Il y a un lien entre croire et recevoir. Quand je crois en Jésus, je reçois de lui un amour et un pardon qui soignent mes plaies. Profondément.
-</p><p>
-
-Le plein d’amour qu’il m’a manifesté domine le vide d’amour que les autres m’ont laissé.
-</p><p>
-
-Reste une question, stratégique et décisive pour ma guérison : dans la classification de mes dossiers, où vais-je placer ce que Jésus a réalisé pour moi ? Au premier plan ou au second ?
-
-</p>
-
-<br/>
+* Qu’est-ce qui m’empêche de me réfugier complètement en l’Eternel (soucis, argent,
+incertitudes…) ?
+<h2>A mémoriser</h2>
+« Nous aussi, puisque nous sommes entourés d’une si grande nuée
+de témoins, rejetons tout fardeau et le péché qui nous enveloppe
+si facilement, et courons avec persévérance l’épreuve qui nous est
+proposée. Faisons-le en gardant les regards sur Jésus, qui fait naître
+la foi et la mène à la perfection. »
+Hébreux 12.1
+<h2>Témoignage</h2>
+« L’année 2022 fût difficile pour Martine et moi-même. En début d’année 2022 j’ai ressenti
+une douleur au bas du dos, je savais que ma sciatique revenait car j’en avais souffert 2 ans
+auparavant, puis elle avait disparue. Cette fois elle allait crescendo.
+Pour ceux qui ne me connaissent pas je suis quelqu’un d’assez actif, je n’aime pas rester
+sans rien faire. Me voilà donc à l’arrêt, marchant difficilement, position assise
+compliquée, allongée passe encore !
+Après toutes tentatives pour calmer la douleur (cortisone, morphine, 2 infiltrations et 3
+semaines en rhumatologie) rien n’y fait. Huit mois de souffrances assez intenses avant
+l’opération du 14 septembre tant attendue qui m’a enfin soulagé. Alors pendant tout ce
+temps d’épreuve, j’ai prié, pensé, ruminé....
+Pourquoi Dieu ne répond-il pas ? Il peut me guérir miraculeusement, que ma santé
+s’améliore rapidement. Pas de signe vraiment !
+J’ai essayé de penser les choses autrement.
+J’ai prié afin: D’accepter cette situation, de ne pas être de mauvaise humeur pour mon
+entourage pour Martine en particulier à mes côtés, d’avoir courage et force chaque jour,
+de me garder de la déprime, d’avoir de la patience, persévérance et la paix intérieure, de
+m’enlever toutes frustrations de ce que j’aurais pu faire durant tout ce temps, de penser à
+ceux qui souffrent bien plus que moi, de diriger toutes choses pendant l’opération très
+délicate, de tenir bon dans ma foi, ne pas abandonner etc.......
+Oui le Seigneur a répondu à beaucoup de prières. Martine pourrait témoigner plus que
+moi, j’ai essayé de ne pas lâcher, de garder le moral, d’avoir confiance. Le Seigneur m’a
+porté dans les moments les plus difficiles et Il est toujours à mes côtés.
+Aujourd’hui je vais mieux, je ressens encore des douleurs, soi-disant postopératoires. Il
+m’arrive d’avoir des moments de plénitudes, sans douleur. C’est alors l’état de Grâce !
+Merci Seigneur pour ta présence de chaque jour. Merci à Martine qui a tenu bon, rien
+lâché à mes côtés, ma famille. Merci à vous l’église, pour votre soutien dans la prière.
+Je vous laisse ce verset :
+Paul écrit : Ne soyez inquiets de rien, mais demandez toujours à Dieu ce qu’il vous faut. Et
+quand vous priez, faites vos demandes avec un coeur reconnaissant. Ainsi la paix de Dieu
+qui dépasse tout ce que nous pouvons comprendre, gardera vos coeurs et vos pensées
+unis au Christ Jésus. (Philippiens 4 v 7) »
+Michel
+<br/><br/>
 <center><h2>Et si on priait ?</h2></center>
 <br/>
 
-
-* La guérison de l’âme passe par une repentance sincère. De quelles guérisons ton âme a-t-elle besoin aujourd’hui ?
-
-* Il existe une résistance naturelle et spirituelle à pardonner. Prions que le pardon de Dieu se fraie un chemin dans nos pensées, et que Dieu attendrisse nos coeurs et à nous aide à oser parler de nos blessures et de nos souffrances.
-
-* Prends du temps pour voir si, sur le haut de la pile de ce qui t’est arrivé dans la vie, c’est bien le dossier de ce que Jésus a fait pour toi qui domine.
-Si c’est le cas, remercie-le pour la guérison qu’il t’a apportée et qu’il continue de t’apporter.
-Si ce n’est pas le cas, cherche bien, dans la pile de dossiers, la feuille de ce que Jésus a fait pour toi. Trouve-la et mets-la au-dessus de toutes les autres.
-
-* Échangeons dans les Groupes de Maison sur le sujet du jour et prions les uns pour les autres afin de s'encourager.
-
-* Prions pour l’implication du plus grand nombre dans les petits groupes.
-
-* Que notre vie de prière et de dépendance toujours plus grande à l’égard de Dieu puisse progresser.
-
-* Prions pour que notre besoin de vivre la réalité du corps, interaction les uns avec les autres ne soit pas une option, mais un besoin vital.
-
+* Apportons au Seigneur dans un temps de silence
+tout ce qui encombre notre vie en ce moment et ce
+qui est source d’inquiétudes.
+* Remettons tout à nouveau notre vie à l’abri du
+Très Haut, et prions pour que Dieu renouvelle en
+nous Sa présence et Sa paix.
+* Prions pour tous ceux qui ont besoin de direction
+en ce moment, et pour ceux qui doivent faire des
+choix importants (études, travail, conjoint,
+déménagement, …)
+* Échangeons dans les Groupes de Maison sur le
+sujet du jour et prions les uns pour les autres afin
+de s'encourager.
 
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/EX_RjTDApQE"
+<iframe src="https://www.youtube.com/embed/rkUxdIjhp7E"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Mercredi 16](mercredi.md)<br/> <> <br/>
-[Jour suivant - Vendredi 18](vendredi.md)
+[Jour précédent - Mercredi 15](mercredi.md)<br/> <> <br/>
+[Jour suivant - Vendredi 17](vendredi.md)
