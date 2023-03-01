@@ -86,25 +86,29 @@ Jimin
 <center><h2>Et si on priait ?</h2></center>
 <br/>
 
-<p align="justify">
-
-* Père, merci pour Ta Parole. Merci parce qu’elle est toujours d’actualité, vivante,
+<p>
+Père, merci pour Ta Parole. Merci parce qu’elle est toujours d’actualité, vivante,
 parfaite et éternelle.
 Apprends-moi à aimer Ta parole. Viens à mon secours lorsque je néglige de la lire.
 Je veux apprendre à mieux Te connaître et à T’aimer au travers de Ta parole ; Donne-moi
 l’humilité de me laisser sonder par elle et ouvre mes yeux pour que je puisse comprendre
 les Ecritures et que je puisse recevoir de plus en plus ton conseil.
 Montre-moi combien Ta parole est vivante dans ma vie, par Ton Esprit.
+</p>
+
 * Prions pour que ce Psaume 119 brise l’indifférence de nos coeurs à la parole de Dieu et
 nous donne le désir de l’aimer et de nous investir dans sa lecture.
+
 * Prions pour que le Seigneur nous ouvre des portes pour raconter et témoigner de
 l’Evangile, de façon individuelle et collective.
+
 * Prions pour toutes les personnes qui ont un ministère d’enseignement dans l’église
 (moniteurs, prédicateurs, formateurs,…) ; qu’ils puissent transmettre avec vérité la
 Parole et que le Saint Esprit les instruise avec sagesse.
+
 * Prions pour ceux qui n’ont pas accès à cette Parole, et pour tous ceux qui ont un
 ministère pour répandre cette Bonne Nouvelle (Gédéons, …).
-</p>
+
 
 <div class="container">
 <iframe src="https://www.youtube.com/embed/oX0WcUo3ldE"

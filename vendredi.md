@@ -64,8 +64,7 @@ m’encourager dans mes circonstances actuelles ?
 <br/>
 
 <p align="justify">
-
-* Seigneur je Te loue car Tu es un Dieu de justice.
+Seigneur je Te loue car Tu es un Dieu de justice.
 Merci parce que Tu as condamné le péché et que Tu as Toi-même enduré la sanction
 en Jésus Christ. Oui, Tu es venu résoudre le problème du péché ; mon péché qui me
 séparait de Toi, mais aussi le péché de notre monde qui m’indigne si souvent.

@@ -27,8 +27,10 @@ du salon.</p><p>
 Face à cette difficulté de franchir le pas de la confession, David nous encourage en insistant
 sur la simplicité de la démarche (v5) :</p><p><b>
 « Je me suis dit : « Je suis rebelle au Seigneur, je dois le reconnaître devant lui. »
-Et toi, tu m’as déchargé de ma faute. »</b></p>Aucune condition n’est donnée : pour chacun, la reconnaissance sincère de la faute devant
-Dieu conduit au pardon, à la libération.</p><p>
+Et toi, tu m’as déchargé de ma faute. »</b></p>
+
+Aucune condition n’est donnée : pour chacun, la reconnaissance sincère de la faute devant
+Dieu conduit au pardon, à la libération.
 
 Avez-vous remarqué que, dans le texte biblique, ce verset est encadré de « pauses »?
 Cela souligne l’importance et la réalité de ce qui vient d’être dit et incite à vivre ce moment
