@@ -35,8 +35,8 @@ Prière dans les groupes de quartier
  Atelier féminin à l’église
 
 - Samedi 19 Mars 12h à 16h30
- Prions ensemble, coeur à coeur avec Dieu<br /><p>Durant cet après-midi, nous voudrions clôturer la semaine par un bouquet de prières ensemble et en continu. Chacun sera invité à suivre un chemin de prières et ainsi rendre vivantes l'adoration, l'intercession, la louange et la confession. <br />
-Vous aurez la possibilité de venir prier le temps que vous souhaitez. Une demi-heure, une heure, plus encore si tel est votre souhait ou bien l'après-midi entière... Il vous sera proposé des temps ensemble, en groupe, sur des sujets et supports ciblés, mais aussi la possibilité  d'aller prier en binôme dans le quartier pour le quartier. Ainsi que des temps spécifiques plus intimes pour prier pour vos besoins personnels</p>
+ Prions ensemble, coeur à coeur avec Dieu<br />Durant cet après-midi, nous voudrions clôturer la semaine par un bouquet de prières ensemble et en continu. Chacun sera invité à suivre un chemin de prières et ainsi rendre vivantes l'adoration, l'intercession, la louange et la confession. <br />
+Vous aurez la possibilité de venir prier le temps que vous souhaitez. Une demi-heure, une heure, plus encore si tel est votre souhait ou bien l'après-midi entière... Il vous sera proposé des temps ensemble, en groupe, sur des sujets et supports ciblés, mais aussi la possibilité  d'aller prier en binôme dans le quartier pour le quartier. Ainsi que des temps spécifiques plus intimes pour prier pour vos besoins personnels
 
 - Samedi 19 Mars, 17h à 21h30<br/>
  Rencontre pour les jeunes 12/25 ans  à l’église, Au programme : jeux, partage, témoignages, prière et pizza !!!

@@ -29,17 +29,21 @@ sur la simplicité de la démarche (v5) :</p><p><b>
 « Je me suis dit : « Je suis rebelle au Seigneur, je dois le reconnaître devant lui. »
 Et toi, tu m’as déchargé de ma faute. »</b></p>Aucune condition n’est donnée : pour chacun, la reconnaissance sincère de la faute devant
 Dieu conduit au pardon, à la libération.</p><p>
+
 Avez-vous remarqué que, dans le texte biblique, ce verset est encadré de « pauses »?
 Cela souligne l’importance et la réalité de ce qui vient d’être dit et incite à vivre ce moment
-de vérité loin de l’agitation, à part, en tête à tête avec Dieu.</p><p>
+de vérité loin de l’agitation, à part, en tête à tête avec Dieu.
+
 La suite du psaume nous montre que cette libération ouvre alors de grandes perspectives :
 elle donne accès à une relation profonde et durable avec l’Eternel, marquée par la confiance
-en Dieu (v7), et l’instruction dans ses voies (v8).</p><p>
+en Dieu (v7), et l’instruction dans ses voies (v8).
+
 C’est cette expérience globale d’une vie « environnée de la grâce de Dieu » (v10) à chaque
-étape qui est un grand sujet de joie !</p><p>
+étape qui est un grand sujet de joie !
+
 Et contrairement à la dimension personnelle et privée de la confession du v5, cette joie ne
 reste pas intérieure, mais est appelée au v11 à s’exprimer haut et fort !
-</p>
+
 <h2>A mémoriser</h2>
 <p>« En Christ, parce qu’Il s’est offert en sacrifice, nous avons obtenu
 la délivrance, le pardon de nos fautes.
