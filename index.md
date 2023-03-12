@@ -13,7 +13,7 @@ sauvés. »<br />
 </p><p>
 Nous vous proposons pour cette semaine de prière d’approfondir le thème de l’année,
 « Avec Jésus, que du bonheur ? », et de survoler le livre des Psaumes à la recherche des
-« Heureux » qui le jalonnent (au total 26 mais nous n’en étudierons que 7 !).
+« Heureux » qui le jalonnent (au total 26 !).
 </p>
 <p>Si Jésus a enseigné les célèbres béatitudes, ces « heureux » qui, à l’époque ont pu en ébranler
 certains, Il n’a jamais contredit les écrits de l’Ancien Testament qui, eux aussi, contiennent des

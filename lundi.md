@@ -33,8 +33,8 @@ Aucune condition n’est donnée : pour chacun, la reconnaissance sincère de la
 Dieu conduit au pardon, à la libération.
 
 Avez-vous remarqué que, dans le texte biblique, ce verset est encadré de « pauses »?
-Cela souligne l’importance et la réalité de ce qui vient d’être dit et incite à vivre ce moment
-de vérité loin de l’agitation, à part, en tête à tête avec Dieu.
+Comme si David voulait souligner l’importance et la réalité de ce qui vient d’être dit et nous
+incitait à vivre ce moment de vérité loin de l’agitation, à part, en tête à tête avec Dieu.
 
 La suite du psaume nous montre que cette libération ouvre alors de grandes perspectives :
 elle donne accès à une relation profonde et durable avec l’Eternel, marquée par la confiance

@@ -19,7 +19,7 @@ rencontrer dans nos difficultés pour faire percer la joie malgré les épreuves
 aussi dans de nombreux psaumes, et notamment dans ceux qui parlent du rassemblement
 du peuple de Dieu, une invitation à une joie simple, qui laisse pour un temps de côté les
 questions, et qui se concentre simplement sur des vérités fondamentales : se rappeler qui
-est Dieu, et ce qu’Il a fait pour nous.</p><p>
+est Dieu, et ce qu’Il a fait de nous.</p><p>
 «C’est l’Éternel qui est Dieu » (v3) : La reconnaissance de l’existence d’un être suprêmement
 puissant et souverain devrait normalement être un sujet d’effroi. Si c’est pour nous un sujet
 de joie, c’est uniquement parce que ce Dieu est l’Éternel : celui qui est éternellement bon et

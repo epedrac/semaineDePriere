@@ -80,9 +80,9 @@ découragés de prier.
 </li><li>Que nous soyons encouragés à persévérer dans nos prières pour les malades, les
 personnes qui souffrent au près comme au loin.
 </li><li>Prions pour l’équipe des responsables et des anciens ; qu’elle puisse prendre les
-décisions avec sagesse, et dans l’unité de l’Esprit. Prions également pour l’avenir de
-l’église (la formation de nouveaux responsables, le recrutement d’un nouveau
-pasteur...)
+décisions avec sagesse, et dans l’unité de l’Esprit. Prions également pour le
+fonctionnement et les projets de l’église ainsi que la formation de nouveaux
+responsables
 </li><li>Prions pour l’équipe de l’AFP ACTES ; qu’elle puisse mettre en place des projets pour
 partager l’Evangile en dehors de l’église
 </li></ul>
