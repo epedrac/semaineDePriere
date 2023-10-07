@@ -1,45 +1,43 @@
+## (Re) Découvrir Christ dans Colossiens
+
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
-<center><h1>Je participe en ligne</h1></center>
+
+*“Et vous, qui dites-vous que je suis ?” Mat 16:15*
+
+Que répondriez-vous à Jésus si Il vous posait la question aujourd’hui ?
+Tu es le Tout-puissant ?.... Le Seigneur des Seigneurs ? …Tu es mon ami ? …. le Bon Berger ?
+…. Tu es….
+
+Pour “Vivre en témoin de Jésus-Christ chaque jour”, nous avons plus que besoin de
+connaître Celui dont nous sommes témoins ; connaître qui Il est, ce qu’Il a fait, mais aussi cheminer avec Lui jour après jour, dans nos quotidiens, et nous laisser sans cesse émerveiller par le mystère révélé par grâce aux hommes pécheurs que nous sommes.
+
+C’est pourquoi nous vous invitons pour cette semaine de prière, à (re) découvrir la personne de Christ, telle que présentée par Paul dans sa lettre aux habitants de Colosses. Nous cheminerons avec Paul en étudiant quelques termes et attributs de Christ, et tenterons de voir ce que cela change pour nous, tant individuellement que collectivement.
+
+Plusieurs occasions nous sont données dans la semaine pour vivre ce temps de prière tous ensemble. Profitons-en !
+
+- **Dimanche 15 Octobre à 10h15** : Culte
+- **Lundi 16, mercredi 18 et vendredi 20 Octobre de 12h15 à 13h15** : Prière à l’église et par zoom
+- **Mardi 17 Octobre de 20h30 à 22h** :
+Soirée de louange et d’adoration à l’église
+- **Mercredi 18 ou Jeudi 19 Octobre de 20h30 à 22h** :
+Prière dans les groupes de maison
+- **Dimanche 22 Octobre à 10h15** : Culte
+
+
+## Je participe en ligne
 
 - [Dimanche](dimanche.md)
- 13 - L’essentiel
+ 15 - Introduction
 - [Lundi](lundi.md)
- 14 - Tu aimeras
+ 16 - Christ, notre Rédempteur
 - [Mardi](mardi.md)
- 15 - Le Seigneur ton Dieu
+ 17 - Christ, notre Plénitude
 - [Mercredi](mercredi.md)
- 16 - De tout ton coeur transformé
+ 18 - Christ, à qui nous sommes Unis
 - [Jeudi](jeudi.md)
- 17 - De toute ton âme guérie
+ 19 - Christ, notre Vie
 - [Vendredi](vendredi.md)
- 18 - De toute ta pensée renouvelée
+ 20 - Christ, Chef de l’Eglise
 - [Samedi](samedi.md)
- 19 - De toute ta force, en action
-- [Dimanche de clôture](dimanche2.md)
- 20 - Ton prochain comme toi-même
-
-
-<center><h1>Je participe avec les autres</h1></center>
-
-- Dimanche 13 Mars, 10H15<br/>
-Culte de louange
-
-- Mardi 15 Mars, 20H30-22H00<br/>
-Prière tous ensemble à l’église
-
-- Jeudi 17 OU Vendredi 18 Mars, 20H15 -22H00<br/>
-Prière dans les groupes de quartier
-
-- Samedi 19 Mars, 9h30 - 11h<br/>
- Atelier féminin à l’église
-
-- Samedi 19 Mars 12h à 16h30
- Prions ensemble, coeur à coeur avec Dieu<br />Durant cet après-midi, nous voudrions clôturer la semaine par un bouquet de prières ensemble et en continu. Chacun sera invité à suivre un chemin de prières et ainsi rendre vivantes l'adoration, l'intercession, la louange et la confession. <br />
-Vous aurez la possibilité de venir prier le temps que vous souhaitez. Une demi-heure, une heure, plus encore si tel est votre souhait ou bien l'après-midi entière... Il vous sera proposé des temps ensemble, en groupe, sur des sujets et supports ciblés, mais aussi la possibilité  d'aller prier en binôme dans le quartier pour le quartier. Ainsi que des temps spécifiques plus intimes pour prier pour vos besoins personnels
-
-- Samedi 19 Mars, 17h à 21h30<br/>
- Rencontre pour les jeunes 12/25 ans  à l’église, Au programme : jeux, partage, témoignages, prière et pizza !!!
-
-- Dimanche 20 mars, 10h15<br/>
-Culte
+ 21 - Christ, notre Maître

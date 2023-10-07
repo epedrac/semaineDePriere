@@ -1,94 +1,113 @@
-# Lundi 13
-## Le bonheur d’être pardonné
-<br/>
-<center><h2>Psaumes 32</h2></center>
-<br/>
+# Lundi 16
+## Christ, notre Rédempteur
 
-<p align="justify">« Heureux celui dont la transgression est enlevée
-et dont le péché est pardonné !»
-</p>
+*Et vous, qui étiez morts à cause de vos fautes, et parce que vous
+étiez des incirconcis, des païens, Dieu vous a donné la vie avec le
+Christ. Il nous a pardonné toutes nos fautes.
+Car il a annulé l’acte qui établissait nos manquements à l’égard des
+commandements. Oui, il l’a effacé, le clouant sur la croix.
+Là, il a désarmé toute Autorité, tout Pouvoir, les donnant
+publiquement en spectacle quand il les a traînés dans son cortège
+triomphal après sa victoire à la croix.* Col 2:13-15
 
-<br/>
-<center><h2>Méditons</h2></center>
-<br/>
-<p>
-Il n’y a pas de grand suspens dans ce psaume, la conclusion nous est donnée dès le
-début : «Heureux celui dont le péché est pardonné !».<br />
-Mais le parcours pour arriver à cette joie du pardon vaut la peine d’être suivi :</p><p>
-David commence par reconnaître que nous sommes parfois tentés par la duplicité (v2) et
-qu’il n’a lui-même pas toujours été vrai devant Dieu (v3).
-Nous pouvons sans doute nous reconnaître dans ces tendances. Bien sûr, nous savons au
-fond de nous que cela n’a aucun sens de vouloir cacher quoi que soit à Dieu, et nous
-expérimentons comme David qu’une culpabilité enfouie a souvent des conséquences
-négatives sur notre vie et notre santé (v3-4).</p><p>
-Mais pourtant, nous agissons encore bien souvent devant Dieu comme un petit enfant qui
-s’entête à nier avoir la moindre idée de comment les gribouillages sont apparus sur le mur
-du salon.</p><p>
-Face à cette difficulté de franchir le pas de la confession, David nous encourage en insistant
-sur la simplicité de la démarche (v5) :</p><p><b>
-« Je me suis dit : « Je suis rebelle au Seigneur, je dois le reconnaître devant lui. »
-Et toi, tu m’as déchargé de ma faute. »</b></p>
 
-Aucune condition n’est donnée : pour chacun, la reconnaissance sincère de la faute devant
-Dieu conduit au pardon, à la libération.
+“Mes péchés sont pardonnés”, “Je suis sauvé”…
+Nous savons que ces affirmations sont centrales à notre foi, mais avec les années de vie
+chrétienne, elles perdent parfois de leur fraîcheur et nous avons régulièrement besoin d’être
+renouvelés dans notre compréhension du Salut.
+On peut pour cela s’appuyer sur la multitude d’images parlantes que nous trouvons dans la
+Bible pour décrire ce que Christ a accompli à la croix, et c’est notamment le cas dans ces
+quelques versets de Colossiens :
 
-Avez-vous remarqué que, dans le texte biblique, ce verset est encadré de « pauses »?
-Comme si David voulait souligner l’importance et la réalité de ce qui vient d’être dit et nous
-incitait à vivre ce moment de vérité loin de l’agitation, à part, en tête à tête avec Dieu.
+**v13** : Nous avons parfois besoin de nous rappeler de là d’où nous venons : il ne s’agit pas de
+se morfondre en pensant à notre vie passée, mais il est utile d’avoir une idée juste de notre
+condition ancienne pour pleinement comprendre ce qui a été accompli.
+Nos parcours peuvent être divers mais la conclusion est la même : que notre vie ait été très
+désordonnée ou plutôt bien rangée, que nous ayons grandi dans une communauté
+chrétienne ou que nous n’imaginions même pas l’existence de Dieu, avant notre conversion,
+nous étions tous “morts”, séparés de Dieu, “à cause de nos fautes”.
+Et par nous-mêmes, nous ne pouvions rien changer à cela.
 
-La suite du psaume nous montre que cette libération ouvre alors de grandes perspectives :
-elle donne accès à une relation profonde et durable avec l’Eternel, marquée par la confiance
-en Dieu (v7), et l’instruction dans ses voies (v8).
+**v14** : Mais notre acte de condamnation, qui établissait nos manquements à l’égard des
+commandements, et qui démontrait de façon irréfutable que nous méritions cette mort, a
+été “effacé”, “cloué à la croix”, crucifié avec Jésus : il n’existe plus, car “Dieu nous a pardonné
+toutes nos fautes”.
+Nous sommes réellement délivrés : Dieu “nous a arrachés au pouvoir des ténèbres et fait
+passer dans le royaume de son Fils bien-aimé” (1.13-14).
+Bien sûr, nous avons parfois encore à supporter des conséquences pratiques de nos fautes
+passées, mais nous n’avons plus à porter le poids de la condamnation.
+Le rédempteur était celui qui payait une rançon pour qu’un esclave soit affranchi.
+C’est bien ce que Christ a accompli pour nous : nous sommes libres !
 
-C’est cette expérience globale d’une vie « environnée de la grâce de Dieu » (v10) à chaque
-étape qui est un grand sujet de joie !
+**v15** : Ce verset fait allusion aux cortèges triomphaux que l’on pouvait observer à Rome : le
+général victorieux paradait sur son char, et derrière lui marchaient, publiquement humiliés,
+les chefs vaincus.
+Quel retournement ! Dans l’apparente faiblesse et humiliation de la croix, c’est au contraire
+toute la puissance divine qui a été mise en oeuvre, et la victoire pleine et entière a été
+acquise : l’ennemi a été “désarmé”.
 
-Et contrairement à la dimension personnelle et privée de la confession du v5, cette joie ne
-reste pas intérieure, mais est appelée au v11 à s’exprimer haut et fort !
+Même si ce n’est qu’au retour de Jésus que cette victoire sera éclatante aux yeux de tous, et
+même si le combat peut encore nous sembler rude, la victoire est déjà acquise. Nous
+connaissons le dénouement de l’Histoire et cela change complètement notre perspective !
 
-<h2>A mémoriser</h2>
-<p>« En Christ, parce qu’Il s’est offert en sacrifice, nous avons obtenu
-la délivrance, le pardon de nos fautes.
-Dieu a ainsi manifesté Sa grâce dans toute sa richesse. »
-Éphésiens 1.7</p>
-<h2>Questions pratiques</h2>
-<ul><li> « Se repentir, c’est renoncer à vouloir se justifier, c’est accepter de renoncer à une position
-orgueilleuse d’autojustification, c’est ressentir la tristesse d’avoir offensé Dieu et son
-prochain. »1
-Est-ce que je prends régulièrement des pauses, des temps de repentance devant Dieu ?
-Y a-t-il des choses aujourd’hui que je tais devant Dieu et que je devrais Lui confesser ?</li><li>
-Ai-je déjà connu la joie du salut ? Et si c’est le cas, est-ce que cette joie a besoin d’être
-renouvelée ?</li><li>
-Comment est-ce que cette joie d’être pardonné(e) peut être plus visible dans ma vie ?
-</li>
-<br/>
-<center><h2>Prière</h2></center>
-<br/>
+## Prière :
 
-<p align="justify">
-Père, je Te remercie pour la joie qu’il y a à être pardonné.
-Merci pour cette délivrance que Tu accordes à tous ceux qui reconnaissent leurs
-fautes. Tu sais tout de moi, Tu connais le fond de mon coeur et ses tortuosités.
-Donne-moi la force et l’humilité de reconnaître mes péchés et de Te les avouer.
-Merci pour Jésus qui est mort pour moi à la croix, à ma place. Merci pour Ta grâce
-qui efface toutes mes transgressions.
-<ul><li>
-Prions pour le secteur enfance et jeunesse de l’église, afin que le vécu dans les
-différents groupes apporte aux enfants et aux jeunes le désir de mieux connaître
-Dieu et Son salut.</li><li>
-Prions pour l’affermissement de la foi chez les jeunes baptisés et futurs baptisés et
-pour la joie de leur salut.</li><li>
-Prions pour les jeunes qui ne viennent plus à l'église, que la pensée de Dieu qui
-leur a été communiquée puisse les travailler en profondeur, que le St Esprit agisse
-dans leur vie et qu'ils puissent revenir à Dieu.</li><li>
-Demandons à Dieu de pouvoir être porteurs de pardon à notre tour, auprès de
-ceux qui nous entourent et qui nous ont offensé.</li></ul>
-</p>
+- Remercions Notre Dieu pour : notre rédemption, notre libération du péché, et pour
+la victoire qui est déjà acquise.
+- Y a-t-il un domaine où nous sentons encore le poids de la condamnation ?
+Remettons le à Dieu qui nous a pardonné “toutes nos fautes”.
+- Prions que nous soyons à nouveau émerveillés de notre Salut, et en faisions un
+sujet de joie.
+- Demandons à Dieu de nous donner des occasions de témoigner de la libération
+que nous avons connue.
+- Prions pour ceux qui s’approchent de Dieu, notamment qui ont été touchés
+pendant les camps cet été.
+- Prions pour ceux qui ont entendu le message, mais qui n’y ont pas encore
+répondu.
+
+## Témoignage :
+
+> « Je ne sais pas trop où commencer mon témoignage ou quelle partie donner, parce
+que j'ai eu beaucoup d'épreuves dans ma vie !
+Mais un jour il m'est arrivé un accident grave à la main et j'ai dû aller à l'hôpital, et
+c'est à cette occasion que j'ai vu la lumière de Jésus.
+J'étais dans un état très sombre de ma vie, mais j'ai demandé à Jésus de ne pas
+m'abandonner : je lui ai demandé de ne pas me laisser mourir, parce que je voulais
+m'en sortir, et je pensais aussi au fait que j'étais une maman.
+C'est là où j'ai vu la lumière de Jésus qui m'a éblouie pendant un certain temps,
+pendant que j'étais inconsciente. Quand je me suis réveillée à l'hôpital, j'ai remercié
+Jésus de m'avoir sauvée. Il a été là pour moi, et le sera toujours : il faut faire confiance
+à Jésus !
+Ce qui m'a le plus marquée, c'est d'avoir ressenti sa main sur mon épaule, de ressentir
+sa présence en moi, et surtout sa fidélité. Je sais qu'il ne me laissera jamais, même si
+je suis dans une période compliquée de ma vie : Jésus ne nous abandonne jamais !
+Il faut être patient, mais peu importe les situations, il est à notre écoute.
+Je finis en partageant un passage sur Jésus qui me marque beaucoup :
+« Voilà pourquoi, maintenant que j’ai entendu parler de votre foi dans le Seigneur
+Jésus et de votre amour pour tous les croyants, je ne cesse pas de remercier Dieu à
+votre sujet. Je pense à vous dans mes prières et je demande au Dieu de notre Seigneur
+Jésus-Christ, au Père glorieux, de vous donner l’Esprit de sagesse qui vous le révélera
+et vous le fera vraiment connaître.
+Qu’il ouvre vos yeux à sa lumière, afin que vous compreniez à quelle espérance il vous
+a appelés, quelle est la richesse et la splendeur des biens destinés à ceux qui lui
+appartiennent, et quelle est la puissance extraordinaire dont il dispose pour nous les
+croyants. Cette puissance est celle-là même que Dieu a manifestée avec tant de force
+quand il a ramené le Christ d’entre les morts et l’a fait siéger à sa droite dans le monde
+céleste.
+Le Christ y est placé au-dessus de toute autorité, de tout pouvoir, de toute puissance,
+de toute domination et de tout autre titre qui puisse être cité non seulement dans ce
+monde-ci mais aussi dans le monde à venir.
+Dieu a mis toutes choses sous les pieds du Christ et il l’a donné à l’Église comme chef
+suprême.
+L’Église est le corps du Christ ; c’est en elle que le Christ est pleinement présent, lui qui
+remplit tout l’univers.
+Éphésiens 1.15-23. »
+Maïara
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/l_V3VAMClK4"
+<iframe src="https://www.youtube.com/embed/1sUY6OjaWC0"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
 
-[Jour précédent - Dimanche 12](dimanche.md) -<>- [Jour suivant - Mardi 14](mardi.md)
+[Jour précédent - Dimanche 15](dimanche.md) -<>- [Jour suivant - Mardi 17](mardi.md)

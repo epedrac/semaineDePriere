@@ -1,59 +1,43 @@
-# Semaine de prière - Au bonheur des Psaumes
+## (Re) Découvrir Christ dans Colossiens
+
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
-<h1>Au bonheur des Psaumes</h1>
-<p>
-« Heureux l’homme qui craint l’Eternel, qui trouve un grand plaisir à ses commandements.»<br/>
-Ps 112 . 1</p><p>
-« Jésus, vous ne l’avez pas vu, et pourtant vous l’aimez. Vous ne le voyez pas maintenant,
-et pourtant vous croyez en Lui. C’est pourquoi vous êtes remplis d’une très grande joie, une
-joie si grande qu’on ne peut même pas en parler. Cette joie, vous l’avez parce que vous êtes
-sauvés. »<br />
-1 Pierre 1.8-9<br />
-</p><p>
-Nous vous proposons pour cette semaine de prière d’approfondir le thème de l’année,
-« Avec Jésus, que du bonheur ? », et de survoler le livre des Psaumes à la recherche des
-« Heureux » qui le jalonnent (au total 26 !).
-</p>
-<p>Si Jésus a enseigné les célèbres béatitudes, ces « heureux » qui, à l’époque ont pu en ébranler
-certains, Il n’a jamais contredit les écrits de l’Ancien Testament qui, eux aussi, contiennent des
-« pépites de bonheur ».</p>
-<p>C’est pourquoi nous avons choisi de nous intéresser à quelques unes de ces pépites, des
-bonheurs « accessibles », que nous révèlent les différents auteurs des Psaumes.
-« Accessibles » signifiant que rien, ni les circonstances, ni ce que nous sommes, ce que nous
-faisons ou ne faisons pas, ne change ces vérités.
-Cela ne veut pas dire bonheurs « faciles » ou « immédiats » mais réels pour ceux qui croient,
-et nous espérons et vous encourageons à découvrir ces trésors disponibles pour chacun, au
-travers des méditations de la semaine et des occasions qui vous sont données pour vivre ces
-temps de prière tous ensemble.</p>
-<center><h1>Profitons-en :</h1></center>
 
-- Dimanche 12 Mars, 10H15 Culte de louange
-- Lundi 13, mercredi 15 et vendredi 17 mars de 12h15 à 13h15 : Prière à l’église et par zoom (possibilité de pique-niquer sur place)
-- Mardi 14 mars de 20h30 à 22h : Prière tous ensemble à l’église
-- Mercredi 15 ou Jeudi 16 mars de 20h30 à 22h : Prière dans les groupes de maison
-- Samedi 18 mars de 13h30 à 16h : Balade et prière : Durant cet après-midi, nous voudrions clôturer la semaine par un
-temps ouvert à tous, jeunes et moins jeunes.
-Michel nous guidera dans une balade d’1 heure, accessible tous
-niveaux, et nous pourrons au travers des différents paysages
-rencontrés, prier dans la nature, en petits groupes ou
-individuellement.
-Venez nombreux !
+*“Et vous, qui dites-vous que je suis ?” Mat 16:15*
 
-<center><h1>Je participe en ligne</h1></center>
+Que répondriez-vous à Jésus si Il vous posait la question aujourd’hui ?
+Tu es le Tout-puissant ?.... Le Seigneur des Seigneurs ? …Tu es mon ami ? …. le Bon Berger ?
+…. Tu es….
+
+Pour “Vivre en témoin de Jésus-Christ chaque jour”, nous avons plus que besoin de
+connaître Celui dont nous sommes témoins ; connaître qui Il est, ce qu’Il a fait, mais aussi cheminer avec Lui jour après jour, dans nos quotidiens, et nous laisser sans cesse émerveiller par le mystère révélé par grâce aux hommes pécheurs que nous sommes.
+
+C’est pourquoi nous vous invitons pour cette semaine de prière, à (re) découvrir la personne de Christ, telle que présentée par Paul dans sa lettre aux habitants de Colosses. Nous cheminerons avec Paul en étudiant quelques termes et attributs de Christ, et tenterons de voir ce que cela change pour nous, tant individuellement que collectivement.
+
+Plusieurs occasions nous sont données dans la semaine pour vivre ce temps de prière tous ensemble. Profitons-en !
+
+- **Dimanche 15 Octobre à 10h15** : Culte
+- **Lundi 16, mercredi 18 et vendredi 20 Octobre de 12h15 à 13h15** : Prière à l’église et par zoom
+- **Mardi 17 Octobre de 20h30 à 22h** :
+Soirée de louange et d’adoration à l’église
+- **Mercredi 18 ou Jeudi 19 Octobre de 20h30 à 22h** :
+Prière dans les groupes de maison
+- **Dimanche 22 Octobre à 10h15** : Culte
+
+
+## Je participe en ligne
 
 - [Dimanche](dimanche.md)
- 12 - Le bonheur de louer Dieu
+ 15 - Introduction
 - [Lundi](lundi.md)
- 13 - Le bonheur d’être pardonné
+ 16 - Christ, notre Rédempteur
 - [Mardi](mardi.md)
- 14 - Le bonheur d’être écouté
+ 17 - Christ, notre Plénitude
 - [Mercredi](mercredi.md)
- 15 - Le bonheur d’obéir à la Loi de Dieu
+ 18 - Christ, à qui nous sommes Unis
 - [Jeudi](jeudi.md)
- 16 - Le bonheur de se réfugier en Dieu
+ 19 - Christ, notre Vie
 - [Vendredi](vendredi.md)
- 17 - Le bonheur de trouver la paix
+ 20 - Christ, Chef de l’Eglise
 - [Samedi](samedi.md)
- 18 - Le bonheur d’avoir un Dieu souverain
-
+ 21 - Christ, notre Maître

@@ -1,101 +1,72 @@
-# Vendredi 17
-## Le bonheur de trouver la paix
+# Vendredi 20
+## Christ, Chef de l’Eglise
 
+*“Il est la tête du corps, qu’est l’Eglise.”*
+Col 1:18
 
-<br/>
-<center><h2>Psaumes 94</h2></center>
-<br/>
+Lecture du jour : Col 1:15 à 2:1
 
-<p align="justify">
-« Quand mon coeur est agité par une foule de pensées,
-tes consolations me rendent la joie. »
-Psaumes 94.19
-</p>
+La mention de l’Église en plein milieu de cet hymne majestueux peut par certains
+côtés nous surprendre, nous sembler un peu terre à terre parmi les déclarations sur la
+plénitude et la souveraineté de Christ sur l’univers tout entier.
+Mais cela nous rappelle justement l’importance de l’Église dans le plan de Dieu : elle est
+indissociable de Jésus, elle est « son corps».
 
-<br/>
-<center><h2>Méditons</h2></center>
-<br/>
-<p>
-En commençant la lecture du Psaume, vous vous êtes peut-être demandé si il n’y avait
-pas une erreur : va-t-on vraiment trouver de la joie et de la paix dans un texte qui parle de
-vengeance, qui s’adresse à des « idiots » et des « hommes stupides », et qui nous rappelle
-que nos pensées humaines sont « sans valeur » ?
+Cela a des conséquences très concrètes pour Paul : il sert l’Église, même les parties qu’il ne
+connaît pas, parce qu’il sert Christ (2.1). Plus encore, il est prêt à souffrir pour elle, parce
+que c’est le corps de Christ (1.24). (Il ne faudrait pas comprendre de ce verset que les
+souffrances de Jésus à la croix n’étaient pas suffisantes pour accomplir la victoire sur le
+péché, mais plutôt que les souffrances de Paul participent à l’accomplissement du plan de
+Dieu en faisant croître son Église). Combien est précieuse l’Eglise de Christ !
 
-Ce psaume ne nie pas les difficultés de la vie, et n’évite pas les grands questionnements. Il
-n’en donne pas une grande explication, et ne propose pas de suivre une recette miracle en
-trois points faciles pour s’en sortir.
+**2.19 : « C’est pourtant de la tête que tout le corps, bien nourri et solidement assemblé par
+ses articulations et ses liens, tire la croissance que Dieu donne ».**
 
-La voie qui nous est proposée commence par l’effort d’apprendre à connaître notre Dieu et
-Sa loi, et de Le laisser intervenir en nous (v12). Mais en suivant ce chemin, on découvre le
-cadre inébranlable et réconfortant dans lequel toutes les difficultés s’inscrivent : « L’Eternel
-ne délaisse pas son peuple » (v14). Non, Dieu ne permettra pas que l’histoire se finisse mal.
+Notre union avec Christ a aussi pour conséquence directe de nous lier à chacun des
+membres du corps de Christ : ceux que l’on connaît comme ceux qui habitent à l’autre bout
+du monde, ceux que l’on apprécie beaucoup, comme ceux que l’on a plus de mal à aimer.
 
-Et lorsque le psalmiste demande que quelqu’un combatte pour lui (v16), nous aujourd’hui,
-savons que Dieu a répondu à cette requête en envoyant Son fils Jésus Christ mourir pour
-nous et régler une fois pour toute la question du pêché et de l’injustice.
+Tout au long de l’épître, nous voyons comment Paul vit cette réalité : il ne connaît pas tous
+les chrétiens à Colosses, mais leur statut commun devant Christ (et les témoignages qu’il a
+reçu sur la réalité de leur foi) lui permet de s’adresser à eux comme à des “frères et soeurs
+fidèles” (1.2), dont il peut demander les prières (4.3).\
+Mais Paul connaît aussi personnellement un nombre impressionnant de chrétiens, et ces
+relations sont un encouragement précieux dans son ministère : il bénéficie de la
+collaboration de “frères bien aimés”, de “fidèles compagnons de service” (4.7-16). Il
+encourage d’ailleurs les Colossiens à faire de même en maintenant les liens avec leurs
+voisins de Laodicée (4.16)
 
-Notre Dieu est celui qui ne change pas : Il est en toutes circonstances notre appui, Celui qui
-vient nous secourir, parce qu’Il est bon (v18).
-Il est aussi le Dieu parfaitement juste qui ne laissera pas le mal à jamais impuni. (v23)
+Ces relations entre les membres du corps de Christ nous sont indispensables. Mais il ne
+faudrait pas sauter d’étape : notre union avec nos frères et soeurs passe par Christ, et est
+dépendante de notre union à Lui : il est réellement « le chef », « la tête ».
 
-Et c’est ainsi que peut venir, malgré les incertitudes et les questions, la joie de l’apaisement :
-« quand mon coeur est agité par une foule de pensées, tes consolations me rendent la joie »
-(v19).
-</p>
+Tout projet, toute action de l’Église ne peut se construire qu’en Jésus. Même lorsque nous
+avons des affinités avec d’autres chrétiens, que nous partageons une vision commune, (et
+on s’en réjouit lorsque c’est le cas !), cela ne suffira pas à construire une oeuvre valable : c’est
+de l’union à Christ que vient la croissance du corps tout entier, et cette croissance est un don
+de Dieu.
 
-<h2>A mémoriser</h2>
-<p>« Ne vous inquiétez de rien, mais en toute chose faites connaître
-vos besoins à Dieu par des prières et des supplications, dans une
-attitude de reconnaissance. Et la paix de Dieu, qui dépasse tout ce
-que l’on peut comprendre, gardera votre coeur et vos pensées en
-Jésus-Christ. »
-Philippiens 4.6-7</p>
-<h2>Questions pratiques</h2>
+Tournons nous vers lui pour lui remettre ce corps qui lui est si précieux, et qui, sans sa tête,
+n’est rien.
 
-* Qu’est-ce qui agite mon coeur particulièrement en ce moment ?
-
-* Quels attributs de Dieu peuvent m’aider face à ces inquiétudes ?
-
-* Est-ce que j’ai déjà vécu la joie d’être consolé(e) par Dieu ? Comment est-ce que cela peut
-m’encourager dans mes circonstances actuelles ?
-
-<br/>
-<center><h2>Et si on priait ?</h2></center>
-<br/>
-
-<p align="justify">
-Seigneur je Te loue car Tu es un Dieu de justice.
-Merci parce que Tu as condamné le péché et que Tu as Toi-même enduré la sanction
-en Jésus Christ. Oui, Tu es venu résoudre le problème du péché ; mon péché qui me
-séparait de Toi, mais aussi le péché de notre monde qui m’indigne si souvent.
-Merci parce que Tu ne délaisses pas ton Peuple même au travers des épreuves et
-des tourments.
-Merci pour la paix que Tu procures même au coeur de l’agitation ; continue Ton
-oeuvre en moi afin que je me confie en Toi et que j’aie l’assurance que Tu ne nous
-abandonneras pas.
-</p>
-<ul><li>
-Remettons à Dieu notre combat pour trouver la paix dans nos pensées.
-</li><li>Prions pour les chrétiens qui oeuvrent au sein de la justice et dans le monde politique ; qu’ils puissent être porteurs de paix et de vérité.
-</li><li>Prions pour la situation économique et politique de notre pays et du monde, pour
-que les tensions et les conflits cessent.
-</li><li>Prions pour ceux qui sont persécutés pour leur foi ; que des portes puissent
-s’ouvrir afin que l’Evangile de Paix soit proclamé.
-</li></ul>
-<h2>Témoignage</h2>
-« Le fait de savoir que l’église prie pour moi a
-été un vrai soutien dans les moments où
-j’étais trop essoufflée pour prier moi-même.
-C’est la grande force de la communion dans la
-prière : savoir qu’on est tous liés par l’Esprit
-Saint.»
-Noémie
+# Prière
+- Remercions Dieu pour l’Eglise, qu’Il a voulue, et dans laquelle nous avons chacun
+notre place.
+- Remercions Dieu parce qu’il a donné Christ, comme chef à l’Eglise (heureusement
+que la direction ultime n’est pas humaine !), et prions que nous soyons ouverts à sa
+direction, en particulier pour notre église.
+- Remercions Dieu pour les liens qui nous unissent, pour la possibilité de le vivre
+concrètement (notamment par la prière) y compris avec ceux qui sont loin / qu’on ne
+connaît pas.
+- Remercions Dieu pour chacun qui a été donné à notre église locale.
+- Prions pour ceux qui choisissent de s’engager à plein temps pour servir l’Église ; que
+Dieu les qualifie et les équipe pour ce ministère.
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/rcQvqyzgsNw"
+<iframe src="https://www.youtube.com/embed/bD6dCZzuMlw"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Jeudi 16](jeudi.md)<br/> <> <br/>
-[Jour suivant - Samedi 18](samedi.md)
+[Jour précédent - Jeudi 19](jeudi.md)-<>-
+[Jour suivant - Samedi 21](samedi.md)
 

@@ -1,46 +1,43 @@
+## (Re) Découvrir Christ dans Colossiens
+
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
-<center><h1>Avant propos</h1></center>
 
-<p align="justify">
-Ce livret est inspiré du livre "Un moi pour aimer l'essentiel", de Gilles Geiser, aux éditions BLF.
-Nous remercions l’auteur et les éditions BLF qui nous ont permis d’utiliser librement les méditations de ce livre.
-</p>
-<p>
-<i>« Maître, quel est, dans la Loi, le commandement le plus grand ?
-Jésus lui répondit : « Tu aimeras le Seigneur, ton Dieu, de tout ton cœur, de toute ton âme, et de toute ta pensée. C’est là le commandement le plus grand et le plus important. Et il y en a un second qui lui est semblable: « Tu aimeras ton prochain comme toi-même ». Tout ce qu’enseignent la Loi et les Prophètes est contenu dans ces deux commandements. » Matthieu 22 : 36-40 </i></p>
-<p><i>«  Si vous savez ces choses, vous êtes heureux, pourvu que vous les mettiez en pratique. »Jean 13 :17</i>
-</p>
+*“Et vous, qui dites-vous que je suis ?” Mat 16:15*
 
-<p>
+Que répondriez-vous à Jésus si Il vous posait la question aujourd’hui ?
+Tu es le Tout-puissant ?.... Le Seigneur des Seigneurs ? …Tu es mon ami ? …. le Bon Berger ?
+…. Tu es….
 
-Quels sont les effets de la connaissance et de l’amour de Dieu dans votre vie ?<br />
-Comment « aimer selon le coeur de Dieu », dans notre quotidien, au travail, quand c’est difficile, ou même quand on n’en a pas envie ?
-</p>
-<p>Nous vous proposons pour cette semaine de prière d’approfondir le thème de l’année, et de survoler le livre «  Un moi pour aimer l’essentiel » de Gilles Geiser.
-Ce livre propose un parcours de 30 jours d’approfondissement des deux commandements les plus importants selon Jésus : Aimer Dieu et aimer son prochain.
-Le but de ce cheminement de 7 jours, ce n’est pas uniquement que nous en sachions plus sur Dieu, mais que les cercles relationnels, familiaux et professionnels dans lesquels nous vivons perçoivent la transformation que produit l’Evangile dans une vie.</p>
+Pour “Vivre en témoin de Jésus-Christ chaque jour”, nous avons plus que besoin de
+connaître Celui dont nous sommes témoins ; connaître qui Il est, ce qu’Il a fait, mais aussi cheminer avec Lui jour après jour, dans nos quotidiens, et nous laisser sans cesse émerveiller par le mystère révélé par grâce aux hommes pécheurs que nous sommes.
 
-<center><h1>Programme</h1></center>
+C’est pourquoi nous vous invitons pour cette semaine de prière, à (re) découvrir la personne de Christ, telle que présentée par Paul dans sa lettre aux habitants de Colosses. Nous cheminerons avec Paul en étudiant quelques termes et attributs de Christ, et tenterons de voir ce que cela change pour nous, tant individuellement que collectivement.
+
+Plusieurs occasions nous sont données dans la semaine pour vivre ce temps de prière tous ensemble. Profitons-en !
+
+- **Dimanche 15 Octobre à 10h15** : Culte
+- **Lundi 16, mercredi 18 et vendredi 20 Octobre de 12h15 à 13h15** : Prière à l’église et par zoom
+- **Mardi 17 Octobre de 20h30 à 22h** :
+Soirée de louange et d’adoration à l’église
+- **Mercredi 18 ou Jeudi 19 Octobre de 20h30 à 22h** :
+Prière dans les groupes de maison
+- **Dimanche 22 Octobre à 10h15** : Culte
+
+
+## Je participe en ligne
 
 - [Dimanche](dimanche.md)
- 13 - L’essentiel
+ 15 - Introduction
 - [Lundi](lundi.md)
- 14 - Tu aimeras
+ 16 - Christ, notre Rédempteur
 - [Mardi](mardi.md)
- 15 - Le Seigneur ton Dieu
+ 17 - Christ, notre Plénitude
 - [Mercredi](mercredi.md)
- 16 - De tout ton coeur transformé
+ 18 - Christ, à qui nous sommes Unis
 - [Jeudi](jeudi.md)
- 17 - De toute ton âme guérie
+ 19 - Christ, notre Vie
 - [Vendredi](vendredi.md)
- 18 - De toute ta pensée renouvelée
+ 20 - Christ, Chef de l’Eglise
 - [Samedi](samedi.md)
- 19 - De toute ta force, en action
-- [Dimanche de clôture](dimanche2.md)
- 20 - Ton prochain comme toi-même
-
-<div class="container">
-<iframe src="https://www.youtube.com/embed/0aTLfEWuKUc"
-frameborder="0" allowfullscreen class="video"></iframe>
-</div>
+ 21 - Christ, notre Maître

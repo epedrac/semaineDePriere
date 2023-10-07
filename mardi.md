@@ -1,115 +1,118 @@
-# Mardi 14
-## Le bonheur d’être écouté
+# Mardi 17
+## Christ, notre Plénitude
 
-<br/>
-<center><h2>Psaumes 28</h2></center>
-<br/>
+*Le Fils est l'image du Dieu invisible, le premier-né de toute la création.
+En effet, c’est en lui que tout a été créé dans le ciel et sur la terre, le
+visible et l’invisible, trônes, souverainetés, dominations, autorités.
+Tout a été créé par lui et pour lui.
+Il existe avant toutes choses et tout subsiste en lui.
+Il est la tête du corps qu’est l'Eglise ; il est le commencement, le
+premier-né d'entre les morts, afin d'être en tout le premier.
+En effet, Dieu a voulu que toute sa plénitude habite en lui.
+Il a voulu par Christ tout réconcilier avec lui-même, aussi bien ce qui
+est sur la terre que ce qui est dans le ciel, en faisant la paix à travers
+lui, par son sang versé sur la croix.* Col 1:15-20
 
-<p align="justify">
-« Merci au Seigneur ! Il m’a écouté quand j’ai crié vers Lui ! (…)
-Du fond du coeur, je Lui ai fait confiance ;
-j’ai reçu du secours, j’ai le coeur en fête. »
-Psaumes 28 : 6-7
-</p>
+D’après le dictionnaire, le mot “plénitude” signifie : “État de ce qui est complet, dans
+toute sa force”, ou bien “Qualité d'une chose ou d’une personne qui est absolue, entière,
+complète”.
 
+Paul emploie ce mot plusieurs fois dans sa lettre aux Colossiens, en le rattachant à Christ, et
+avec 2 facettes en particulier :
 
-<br/>
-<center><h2>Méditons</h2></center>
-<br/>
+Dans le chapitre 1 du verset, 15 au verset 20, (passage que nous vous encourageons à
+apprendre ;) !), il est question de la plénitude de Dieu en la personne de Christ.
+Au verset 17 : **“Il est lui-même <ins>avant toutes choses</ins> et tout subsiste en Lui.”** et au verset 19 :
+**“En effet, Dieu a voulu que <ins>toute sa plénitude</ins> habite en Lui.”**.
+Paul nous rappelle que, dès le commencement, et dans toute l’Histoire, Christ révèle dans
+toute Sa personne qui est Dieu, Sa suprématie absolue sur tout ce qui existe, dans le ciel et
+sur la terre.
 
-<p>
-Il existe tant de distractions dans nos quotidiens, un tel brouhaha incessant, que nous
-pouvons vite être frustrés de ne pas nous sentir écoutés quand nous avons quelque chose à
-dire ou partager.<br />
-“Dis, papa, tu m’écoutes quand je te parle ?” pourrait dire un enfant à son père trop occupé
-par son travail…..ou…. un chrétien à Dieu, invisible à ses yeux et qui semble tarder à
-répondre à ses prières …</p><p>
-Tout au long des Psaumes, David adresse à Dieu des demandes à la fois pleines d’audace et
-spécifiques; il épanche son coeur, exprime ses émotions (colère, découragement, joie,
-tristesse…), tantôt avec assurance, tantôt avec peine.
-Mais il ne le fait pas comme quelqu’un que l’on prendrait pour un fou à parler tout seul à
-voix haute. Il le fait car il sait que Dieu l’écoute. Oui, il en est persuadé et ne se lasse pas de
-prier.</p><p>
-Dans ce Psaume 28, David demande toute l’attention de Dieu et argumente avec Lui; il crie à
-Dieu, face à la perspective d’être accusé injustement et considéré comme un dirigeant
-malhonnête.
-Ces versets n’expriment pas seulement un désir de vengeance, mais formulent la
-protestation de toute conscience saine devant les injustices du monde, et la conviction
-qu’un juste jugement est nécessaire.</p><p>
-A partir du verset 6, David loue l’Eternel car Il a entendu ses supplications. Pourquoi un tel
-revirement ? A-t-il entendu une réponse de la part de Dieu ?
-Le texte ne nous le dit pas, mais c’est comme si David avait reçu une conviction profonde
-dans son coeur, une certitude inébranlable en un Dieu puissant et libérateur.</p><p>
-La joie de David est manifeste lorsqu’il redit sa confiance en un Dieu qui fortifie, qui secourt,
-qui protège, qui guide et qui bénit : il a le « coeur en fête » !
-Lorsque nous adressons à Dieu nos propres prières, nous n’avons pas toujours la certitude
-d’être exaucés comme nous l’aimerions. Mais soyons remplis de joie car nous avons
-l’assurance d’être entendus par Lui. Non pas parce que nous le méritons, mais parce que Son
-fils Jésus présente nos requêtes devant Son trône.</p><p>
-Alors ne nous lassons pas de prier et soyons dans la joie car Dieu est prêt à nous écouter, et
-certainement, oui certainement, Il répondra au moment opportun !
-</p>
-<h2>A mémoriser</h2>
-<p>« Et voici quelle assurance nous avons devant Dieu :
-si nous demandons quelque chose qui est conforme à sa volonté,
-Il nous écoute.
-Et si nous savons qu’Il nous écoute,
-nous savons aussi que l’objet de nos demandes nous est acquis.»
-1 Jean 5.14-15</p>
-<h2>Questions</h2>
-<ul><li>« Est-ce que je sais que Dieu m’entend lorsque je prie ou est-ce que je suis découragé(e)
-de prier parce que j’ai l’impression de parler “dans le vide” ?</li><li>
-Est-ce que j’ai de la joie lorsque je prie, même si je ne reçois pas l’exaucement
-immédiatement, ou de la façon dont j’espérais ?</li></ul>
-<br/>
-<center><h2>Et si on priait ?</h2></center>
-<br/>
+Au chapitre 2 , c’est de la plénitude en sagesse et en connaissance dont il est question,
+toujours en la personne de Christ.
+Verset 3 : **“C’est en Lui que sont cachés <ins>tous les trésors de la sagesse et de la
+connaissance</ins>”**.
 
-<p align="justify">
-<ul><li>
-Seigneur, je Te remercie pour le bonheur de savoir que Tu m’écoutes vraiment.
-Pardon pour toutes les fois où j’abandonne et je ne crois plus que Tu es là.
-Accorde-moi la joie de Te prier, même si je ne reçois pas l’exaucement
-immédiatement, ou de la façon dont j’espérais.
-Je renouvelle ma confiance en Toi parce que Tu sais mieux que moi ce dont j’ai besoin.
-Ta grâce me suffit pleinement. Aide-moi à vivre la joie et la certitude que Tu es vivant
-et agissant à tout instant dans ma vie.
-Merci d’être le Dieu merveilleux que Tu es.
-</li><li>Que Dieu fortifie nos coeurs et renouvelle nos pensées lorsque nous sommes
-découragés de prier.
-</li><li>Que nous soyons encouragés à persévérer dans nos prières pour les malades, les
-personnes qui souffrent au près comme au loin.
-</li><li>Prions pour l’équipe des responsables et des anciens ; qu’elle puisse prendre les
-décisions avec sagesse, et dans l’unité de l’Esprit. Prions également pour le
-fonctionnement et les projets de l’église ainsi que la formation de nouveaux
-responsables
-</li><li>Prions pour l’équipe de l’AFP ACTES ; qu’elle puisse mettre en place des projets pour
-partager l’Evangile en dehors de l’église
-</li></ul>
-</p>
+Paul souligne cela car les Colossiens pouvaient, à l’époque, être attirés par certains
+enseignements philosophiques florissants ; des discours séduisants mais qui n’attirent pas
+l’attention sur Christ seul.
 
-<h2>Témoignage</h2>
-<p>
-« La prière pour moi est surtout un moment de
-complicité avec Dieu, où même si on n’a pas la
-réponse tout de suite à nos questions et
-demandes, on a la certitude qu’Il nous écoute,
-qu’Il entend nos sentiments aussi. Même si
-parfois je n’ai rien à dire parce que c’est trop dur,
-Il entend et ça fait du bien.
-Durant cette période difficile, la prière m’a
-beaucoup aidé à faire le point sur mes besoins
-profonds et m’a aussi aidé dans mes relations.
-Prier pour les gens qu’on aime aide aussi à
-ressentir l’amour de Dieu. »
-Thomas
-</p>
+Christ devient alors une lumière parmi d'autres, mais pas LA lumière.
+C’est pourquoi Paul insiste sur leur union en Christ, dans lequel se trouve la « plénitude »
+que les enseignants de mensonges promettaient aux Colossiens.
+
+Colossiens 2 Verset 10 : **“Par votre union avec Lui, vous êtes pleinement comblés”.**
+
+Et nous ? Quelle place avons-nous fait à Christ dans nos vies ?
+
+Une « bonne place » ou toute la place ?
+
+Si Paul nous rappelle la primauté de Christ, c’est pour comprendre quelle place Christ occupe
+dans le plan de Dieu, et donc quelle place Christ doit tenir dans notre vie.
+En ayant la certitude de notre pardon en Christ (voir hier), nous accueillons Christ en nous et
+recevons la plénitude qu’Il nous donne en s’étant donné Lui-même.
+
+Et pourtant, nous oublions si souvent que Christ est tout, et cherchons ailleurs le secret de la
+plénitude qui semble nous manquer (travail, conjoint, développement personnel, loisirs,
+écrans…)
+
+Face à nos tentations résonne ce verset : “Vous avez tout pleinement en Christ”.
+
+“Vous” : c’est personnel.\
+“avez” : c’est présent.\
+“tout” : c’est absolu.\
+Dans quelle mesure ? “pleinement”.\
+Comment ? “en Lui”.
+
+Le repos, la liberté, la paix, l’amour, l’acceptation, le salut, l’avenir…. Tout est disponible en
+Christ.
+
+**Nous n’avons réellement besoin de rien d’autre : seulement Christ.**
+
+## Prière
+
+- Louons Dieu pour sa Majesté, sa Toute puissance et Sa suprématie sur la terre et
+dans le ciel.
+- Adorons notre Dieu qui s’est révélé pleinement en Christ.
+- Prenons un instant pour nommer ce qui a pris la place de Christ dans notre vie, ou ce
+que nous sommes tentés d'ajouter à cette “plénitude en Christ”. Demandons pardon à
+Dieu pour nos égarements, et demandons-Lui de nous remplir tout à nouveau de Sa
+plénitude.
+- Prions pour notre société, et les “solutions” qui sont proposées à nos contemporains;
+demandons à Dieu de nous donner des occasions de parler de Lui et de présenter Sa
+lumière.
+
+## Témoignage
+> « Donner un témoignage sur un attribut spécifique de Jésus relève d’un défi car quasiment
+dans toutes les circonstances de ma vie, j’en percevais plusieurs en même temps.
+Difficile de n’en relever qu’un : Il est le Tout-Puissant, Il est bon, Il est fidèle. La liste est
+longue, n’est-ce pas?\
+\
+Si je devais en retenir un, je retiendrais la fidélité de Jésus, lors d’une circonstance spécifique
+que j’ai déjà évoquée pour exprimer ma reconnaissance pour le soutien des Frères et Soeurs.
+Ce fut pendant une période éprouvante de ma vie de famille.\
+\
+ En 2022, alors que nous étions dans un processus de déménagement et de travaux
+importants dans notre nouvel appartement, les médecins ont diagnostiqué un cancer du sein
+chez mon épouse\
+Elle devait passer par une opération puis par une chimiothérapie avec ce que cela implique
+en termes de fatigue et de besoin.\
+Ce fut aussi une période très intense en charge de travail et en responsabilité dans mon
+travail. Chaque jour j’avais à assurer plusieurs choses très différentes les unes des autres et
+parfois difficiles à synchroniser, affectant le temps de repos et de sommeil aussi bien le
+temps de culte personnel.\
+Jour et nuit, en tout temps, je percevais la voix de Jésus me disant “Je suis avec toi et Je suis
+avec ton épouse”; je saisissais Sa bonne main qui me tenait fermement pour traverser cette
+période sans “sombrer”.\
+Il a pourvu à tout ce dont j’avais besoin dans mon corps, dans mon travail et dans les travaux
+à travers les Frères et Soeurs. Mon épouse a aussi expérimenté Son oeuvre de guérison. »\
+Henri
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/XV4zCdemWJM"
+<iframe src="https://www.youtube.com/embed/E1tQY_hQbG0"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
 
-[Jour précédent - Lundi 13](lundi.md)<br/> <> <br/>
-[Jour suivant - Mercredi 15](mercredi.md)
+[Jour précédent - Lundi 16](lundi.md)-<>-
+[Jour suivant - Mercredi 18](mercredi.md)

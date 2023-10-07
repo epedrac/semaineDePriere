@@ -1,119 +1,100 @@
-# Mercredi 15
-## Le bonheur d’obéir à la Loi de Dieu
+# Mercredi 18
+## Christ, à qui nous sommes Unis
 
-<br/>
-<center><h2>Psaumes 119</h2></center>
-<br/>
+*« Aussi, puisque vous avez reçu le Christ, Jésus le Seigneur,
+comportez-vous comme des gens unis à lui :
+Enracinez-vous en lui, construisez toute votre vie sur lui et attachez-vous
+de plus en plus fermement à la foi conforme à ce qu’on vous a enseigné.
+Agissez ainsi en adressant à Dieu de nombreuses
+prières de reconnaissance.*  Col 2 : 6-7
 
-<p align="justify">
-«Heureux ceux dont la conduite est intègre,
-ceux qui marchent suivant la loi de l’Eternel !
-Heureux ceux qui gardent Ses instructions,
-qui Le cherchent de tout leur coeur. »
-Ps 119.1-2
+Lecture du jour : Col 1:24 à 2:12
 
-</p>
+L’expression “en Christ”, ou “dans l’union avec Christ” revient régulièrement dans
+Colossiens. Elle recouvre les aspects passés, présents et à venir de notre vie en Christ :
+- Elle nous parle de ce qui a été accompli à la croix, car dans l’union avec Lui, nous avons été
+“dépouillé du corps de notre nature pécheresse” et “ressuscité” (2.11-12).
+- Elle nous parle de la plénitude de ce qui nous est offert dès maintenant : dans l’union avec
+Lui, nous sommes “pleinement comblés” (2.10).
+- Et elle nous parle de l’avenir, car ”Christ en nous est l’espérance de la gloire à venir”. (1.24)
 
+Voilà de belles vérités à méditer !
 
-<br/>
-<center><h2>Méditons</h2></center>
-<br/>
-<p>
-Le Psaume 119 est une éloge de la Parole de Dieu, parsemé de prières er d’actions de
-grâces.
-L’insistance du psalmiste pour l’amour de cette Loi est flagrante : à l’exception de deux
-versets (122-123), tous les autres mentionnent la loi avec des termes synonymes divers
-comme : parole, ordonnances, instructions, prescriptions, préceptes, jugements, décrets,
-témoignages, sentences, statuts ou commandements.
+Mais notre union à Christ n’est pas seulement un statut, c’est bien plus que de simplement
+faire partie du “groupe de Jésus” avec les privilèges associés.
 
-Les verbes utilisés pour parler de cette Loi sont variés : étudier, méditer, s’attacher, se
-conformer, garder, respecter, suivre, rechercher de tout son coeur, obéir, appliquer ….. mais
-ce qui est étonnant, ce sont tous les mots qui mentionnent la joie et le plaisir qu’elle
-procure : faire ses délices, contempler ses merveilles, aimer, se réjouir, célébrer…. Plutôt
-étonnant lorsque l’on parle de loi, non ?
+Elle apparaît surtout comme quelque chose à cultiver et à faire grandir, puisque notre objectif
+devrait être de parvenir à “l’état d’adulte dans notre union avec Christ” (1.28). Cela peut
+sembler un peu abstrait, mais quelques clés nous sont données un peu plus loin :
 
-C’est certainement pour tous les avantages que l’homme tire de la mise en pratique de cette
-Loi que l’auteur nous encourage à l’aimer et à s’y conformer : sagesse, intelligence, vérité,
-vie, grâce, délivrance, paix, louange, joie, secours,…. Quel trésor !!!
+2.6-7 : « **Aussi, puisque vous avez reçu Christ Jésus le Seigneur, comportez-vous comme des
+gens unis à lui : enracinez-vous en lui, construisez toute votre vie sur lui et attachez-vous de
+plus en plus fermement à la foi conforme à ce qu’on vous a enseigné** ».
 
-On devine dans ce psaume que le contexte d’alors était fait de mépris, de complots, de
-divisions et même de persécutions. Et pourtant quel débordement d’amour et et joie pour
-cette Loi de l’Eternel !
-Soyons donc encouragés à ne pas baisser les bras, quelques soient les circonstances de nos
-vies, et à toujours plus nous ancrer dans la Parole de Dieu, la méditer jour et nuit afin de
-nous réjouir de nous y conformer !
-</p>
+Grandir dans notre union à Christ, c’est :
+- **Veiller à la solidité de nos racines** : notre connaissance de Christ grandit avant tout en
+approfondissant encore et toujours les fondements de l'Évangile : ce message est à la fois
+simple (et nous devons veiller à ne pas vouloir y ajouter quoi que ce soit !), mais aussi d’une
+“glorieuse richesse” (1.27), que nous ne finissons pas de découvrir !
+- **Veiller à tout ce que nous bâtissons** : c’est bien “toute notre vie” qui doit être construite sur
+Jésus.
 
-<h2>Questions pratiques</h2>
+Bien souvent, Il nous montre petit à petit de nouveaux domaines où nous ne nous
+comportons pas toujours comme des “gens unis à Lui”, et nous avons besoin d’être à son
+écoute pour continuer à grandir vers l’âge adulte.
 
-* Est-ce que j’aime la loi de Dieu et est-ce que j’ai de la joie lorsque je la médite ? Est-ce que
-quelque chose m’empêche de vivre cette joie ?
+## Prière
+- Soyons reconnaissants pour la foi qui nous a été enseignée, et l’espérance de la
+gloire à venir par notre union avec Christ.
+*Prions pour notre croissance vers la maturité spirituelle individuelle, et également
+en église.
+- Échangeons dans les Groupes de Maison sur le sujet du jour et prions les uns pour
+les autres afin de s'encourager à persévérer dans notre union avec Christ, et dans
+notre unité en Lui.
+- Prions pour les enfants de notre assemblée et de notre entourage, et pour leurs
+moniteurs d’Explorabible ; que la Bonne Nouvelle puisse leur être annoncée avec joie.
 
-* Comment est-ce que je me laisse remettre en cause dans ma vie par ce que je lis dans la
-bible ? Est-ce que je la prends au sérieux et est-ce que je cherche à mettre vraiment en
-pratique ses enseignements ?
-* Qu’est-ce que je peux mettre en place dès aujourd’hui pour m’encourager à lire la bible de
-façon plus régulière et plus profonde afin de vivre cette joie qui m’est proposée ?
-
-<h2>A mémoriser</h2>
-« Que la Parole du Christ réside au milieu de vous dans toute sa
-richesse : qu’elle vous inspire une pleine sagesse, pour vous
-instruire et vous avertir les uns les autres.»
-Colossiens 3.16
-
-<h2>Témoignage</h2>
-« Quand j’étais étudiante, je me posais beaucoup de questions pour savoir comment
-trouver la volonté de Dieu. Un jour, en lisant 1 Thessaloniciens 5.16-18, j’ai été frappée
-par la simplicité de la réponse qui nous est donnée : la volonté de Dieu, c’est que nous
-soyons toujours joyeux, que nous priions sans cesse, que nous exprimions notre
-reconnaissance en toutes circonstances. J’ai alors décidé d’essayer de mettre en pratique
-ces points dans les détails de ma vie quotidienne. Bien sûr, ce n’est pas simple, l’ego est
-toujours prêt à ressortir à chaque instant ! Mais je voulais partager une expérience de ce
-que j’ai pu apprendre en essayant de « prier sans cesse ». Un jour, j’avais un désaccord
-avec un collègue. J’étais sûre que mon raisonnement était logique et équitable, et j’ai prié
-pour que mon collègue “stupide” comprenne que j’avais raison... Mais en rentrant chez
-moi, ma lecture biblique du jour était Jacques 3, qui nous parle de l’usage de la langue, et
-nous rappelle qu’il ne faut pas que de notre bouche sorte à la fois la bénédiction et la
-malédiction ! Cette expérience m’a aidée à comprendre comment la prière est vraiment
-une conversation : j’ai parlé à Dieu d’une façon qui n’était pas juste, il m’a reprise par sa
-Parole, et cela m’a conduit à me repentir devant lui. La prière, la méditation de la parole,
-l’obéissance sont indissociables. Je ne peux pas créer dans mon coeur ce qui est bon, mais
-c’est en priant sans cesse que je peux connaître la volonté de Dieu et vivre « ce que
-l’Éternel demande de toi : c’est que tu mettes en pratique le droit, que tu aimes la bonté,
-et que marches humblement avec ton Dieu. » (Michée 6.8)»
-Jimin
-<br/>
-<center><h2>Et si on priait ?</h2></center>
-<br/>
-
-<p>
-Père, merci pour Ta Parole. Merci parce qu’elle est toujours d’actualité, vivante,
-parfaite et éternelle.
-Apprends-moi à aimer Ta parole. Viens à mon secours lorsque je néglige de la lire.
-Je veux apprendre à mieux Te connaître et à T’aimer au travers de Ta parole ; Donne-moi
-l’humilité de me laisser sonder par elle et ouvre mes yeux pour que je puisse comprendre
-les Ecritures et que je puisse recevoir de plus en plus ton conseil.
-Montre-moi combien Ta parole est vivante dans ma vie, par Ton Esprit.
-</p>
-
-* Prions pour que ce Psaume 119 brise l’indifférence de nos coeurs à la parole de Dieu et
-nous donne le désir de l’aimer et de nous investir dans sa lecture.
-
-* Prions pour que le Seigneur nous ouvre des portes pour raconter et témoigner de
-l’Evangile, de façon individuelle et collective.
-
-* Prions pour toutes les personnes qui ont un ministère d’enseignement dans l’église
-(moniteurs, prédicateurs, formateurs,…) ; qu’ils puissent transmettre avec vérité la
-Parole et que le Saint Esprit les instruise avec sagesse.
-
-* Prions pour ceux qui n’ont pas accès à cette Parole, et pour tous ceux qui ont un
-ministère pour répandre cette Bonne Nouvelle (Gédéons, …).
-
-
+## Témoignage
+> Colossiens 1:28-29 « Ainsi, nous annonçons le Christ à tout être humain. Nous
+avertissons et nous instruisons chacun, avec toute la sagesse possible, afin de rendre
+chacun spirituellement adulte dans l'union avec le Christ. À cet effet, je travaille et je
+lutte avec l'énergie qui vient du Christ et qui agit en moi avec puissance. »\
+\
+« Il y a 45 ans je franchissais la porte d’une église protestante évangélique pour la
+première fois, j’avais 21 ans, un héritage avec un enseignement biblique familial. Je
+pensais connaître et savoir …\
+Très rapidement, je me suis aperçu que je n’avais pas de relations personnelles avec
+Dieu, j’étais cérébral et je pensais qu’il fallait être meilleur en accomplissant des
+performances spirituelles. Bref, j’avais 21 ans, mais j’étais un enfant spirituel, un enfant
+qui essayait de faire des efforts pour satisfaire Dieu. J’avais compris (intellectuellement)
+ce que Jésus avait fait pour moi (sa mort pour mes péchés, sa résurrection, le fait qu’Il
+était vivant), j’avais compris, mais avais cette impression de faire du sur-place dans bien
+des domaines de ma vie.\
+Jusqu’au jour où j’ai accepté que je n’y arriverai pas par moi-même. Et que si j’étais
+sauvé par ma foi en Jésus, pour vivre de manière apaisée et progresser, je devais être
+aidé.\
+Cette aide s’est faite en comprenant qu’en devenant chrétien, j’acceptais de devenir
+disciple de Jésus, suiveur de Jésus, à son écoute, en mettant en pratique Son
+enseignement. En faisant cela et en passant du temps avec Jésus, comme dans le
+mariage, je m’unissais à Lui.\
+Un livre m’avait interpellé à l’époque : « Que ferait Jésus à ma place ? » (Charles
+Sheldon), toute l’orientation de ma vie s’en est trouvée touchée.\
+Mais cela ne s’est pas arrêté à un questionnement, il me fallait de l’énergie pour le vivre
+et le verset 29 ci-dessus répondait à mon besoin : « avec l'énergie qui vient du Christ et
+qui agit en moi avec puissance ». Et ce fut la découverte du rôle du Saint-Esprit dans ma
+vie, sans Lui, je n’y arrive pas. Encore aujourd’hui, Il souligne des travers de mon
+caractère à changer, des péchés à confesser.\
+\
+Suis-je maintenant un adulte à 67 ans ? J’en ai le désir, mais plus par mes forces, « ce
+n’est plus moi qui vit par mes propres forces, c’est le Christ qui vit en moi » (Gal.2:20).\
+\
+Merci aux différents chrétiens qui m’ont accompagné, conseillé et prié pour moi. Merci
+à cette superbe invention de l’église qui a été une nouvelle famille pour moi. »\
+Jean-Marc
 <div class="container">
-<iframe src="https://www.youtube.com/embed/oX0WcUo3ldE"
+<iframe src="https://www.youtube.com/embed/OBuuk1nEXUE"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Mardi 14](mardi.md)<br/> <> <br/>
-[Jour suivant - Jeudi 16](jeudi.md)
+[Jour précédent - Mardi 17](mardi.md)-<>-
+[Jour suivant - Jeudi 19](jeudi.md)

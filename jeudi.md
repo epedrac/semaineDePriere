@@ -1,121 +1,106 @@
-# Jeudi 16
-## Le bonheur de se réfugier en Dieu
-<br/>
-<center><h2>PPsaumes 16
-</h2></center>
-<br/>
+# Jeudi 19
+## Christ, notre Vie
 
-<p align="justify">« Je dis à l’Eternel : “Toi, tu es mon Seigneur,
-et mon bonheur est en toi seul.»
-Psaumes 16.1
+*“Vous qui étiez morts en raison de vos fautes et de
+l'incirconcision de votre corps, il vous a rendus à la vie avec lui”.*
+Col 2 : 13
+Lecture du jour : Col 2:2 à 3:25
 
-</p>
+Après avoir présenté Jésus comme Rédempteur et Seigneur, Celui en qui est toute la
+plénitude de Dieu et à qui nous devons rester fidèlement attachés, Paul rappelle aux
+Colossiens la conséquence de notre union à Christ : La VIE !
 
-<br/>
-<center><h2>Méditons</h2></center>
-<br/>
+Mais pour vivre cette vie il faut accepter de mourir : mourir à nous-même et passer à la croix
+pour y réaliser pleinement notre péché et notre incapacité totale à nous sauver.
+
+**“Vous êtes morts avec le Christ…”** (Col 2:20) **“Mais vous êtes aussi ressuscités avec le
+Christ”** (Col 3:1).
+
+Paul emploie plusieurs images pour illustrer cette mort avec Christ et cette vie nouvelle :
+
+- **le baptême** (Col 2:12) :
+
+Par le baptême, nous nous identifions à Jésus : notre ancienne vie est morte avec Lui sur la
+croix, et Sa résurrection nous donne une nouvelle vie.
+
+- **la “cachette”** (Col 3:3) :
+
+Lorsque j’accepte d'être mort avec Christ, j’accepte de disparaître. Mais en Christ et par Lui, je
+participe à une nouvelle vie, secrète et éternelle.
+Son développement se fait de façon mystérieuse, mais en toute sécurité, comme un trésor
+bien gardé, à l’abri de toute atteinte.
+C’est l’image de la semence ou du grain de blé qui doit mourir pour porter du fruit (voir Jean
+12:24).
+
+- **le vêtement** (Col 3:8-12) :
 
 
+Tant que nous tenterons d’améliorer qui nous sommes, nous ferons fausse route.\
+Tant que nous croirons pouvoir rapiécer le vieux vêtement ou nous débarrasser juste d’une
+partie de nos habits déchirés, nous mourrons.\
+Il nous faut nous “dépouiller”, nous “débarrasser” de notre vieil homme : c’est cela mourir
+avec Christ.\
+Mais si nous nous dépouillons, c’est pour nous revêtir ensuite; nous revêtir de “l'homme
+nouveau”.\
+Il ne s’agit pas d’un “déguisement spirituel” ou d’un “masque”; c’est un “habit de noce”
+donné par Christ, et créé selon Dieu.\
+Et grâce à Christ présent et vivant en nous, cet homme nouveau est renouvelé constamment.
 
-<p align="justify">
-Nous sommes nombreux à nous sentir souvent débordés, et ce psaume qui nous
-parle du bonheur d’une vie moins encombrée peut nous parler !
+Nous sommes donc appelés à faire mourir tout ce qui est associé à la vie ici-bas (Col 3:5)
 
-La vie du roi David n’était certainement pas simple et reposante : on peut imaginer qu’il
-avait des dizaines de problèmes à gérer chaque jour et de nombreuses raisons de
-s’inquiéter. Et pourtant, il nous partage ici la tranquillité et le bonheur qu’il a pu trouver en
-faisant un choix radical : face à la tendance humaine qui consiste à remplir sa vie de
-nombreuses choses (v4) en espérant qu’elles apporteront une part de bonheur et de
-satisfaction, David fait au contraire le choix de se concentrer sur un seul but : se réfugier en
-l’Éternel. Cette démarche apparaît comme un engagement personnel ferme, que David
-répète plusieurs fois (v2,v4,v5), mais qui se vit aussi en communauté (v3).
+pour vivre de cette “vie nouvelle” et tendre aux réalités “d’en haut” (Col 3:1-2).
+Et cette nouvelle vie n’est pas une vie “pour nous-mêmes” mais elle a des impacts
+immédiats sur nos relations. Nous voyons dans le chapitre 3 combien le renouvellement de
+notre être intérieur détermine la façon de traiter les autres à l’extérieur : unité, pardon,
+paix, amour, soumission, ….
 
-Si ce choix est à contre-courant, on en voit tous les bénéfices : un coeur qui est dans la joie,
-un esprit dans l’allégresse (v9). Il est intéressant de voir que ce n’est pas l’espace libéré ou le
-temps dégagé par ce désencombrement qui apportent le bonheur.
-La vie qui nous est décrite semble au contraire bien remplie, de choses belles et délicieuses
-(v6) ! Mais elle semble plus simple, parce que la direction à suivre est claire : c’est celle qui
-est indiquée par l’Éternel (v7-8). Elle aboutit à une confiance et une tranquillité à chaque
-étape de la vie, et au-delà, puisque même la mort ne peut pas mettre un terme à ce
-bonheur qui se trouve dans la présence de Dieu (v10-11).
+**Waouh, quelle vie !!!**
 
-Dans le nouveau testament, Pierre et Paul appliquent le verset 10 à la résurrection de Jésus
-(Actes 2.26-28, Actes 13.35). Et puisque nous savons que cette même puissance mise en
-oeuvre dans la résurrection se manifeste envers nous (Éphésiens 1.19), nous avons vraiment
-toutes les raisons de faire le choix d’une vie abritée en l’Éternel.
-</p>
+## Prière
+- Quand nous suivons Jésus, il y a beaucoup de choses que nous avions l’habitude de
+faire que nous ne faisons plus. Nous changeons parce que nous sommes devenus une
+nouvelle créature, à l’image de Dieu.
+Quels sont les changements visibles de l'oeuvre de Dieu dans votre vie ? Et dans celle
+de ceux qui vous entourent ?
+Remerciez Dieu pour son action dans ce sens dans la vie de Ses enfants.
+- Prions pour notre témoignage quotidien ; que la vie de Christ en nous ait des
+impacts concrets dans nos relations, avec notre famille et nos collègues.
 
-<h2>Questions pratiques</h2>
-* Qu’est-ce qui encombre ma vie actuellement ?
-
-* Quels sont les domaines de ma vie où j’ai particulièrement besoin de demander à Dieu sa
-direction en ce moment ?
-
-* Qu’est-ce qui m’empêche de me réfugier complètement en l’Eternel (soucis, argent,
-incertitudes…) ?
-<h2>A mémoriser</h2>
-« Nous aussi, puisque nous sommes entourés d’une si grande nuée
-de témoins, rejetons tout fardeau et le péché qui nous enveloppe
-si facilement, et courons avec persévérance l’épreuve qui nous est
-proposée. Faisons-le en gardant les regards sur Jésus, qui fait naître
-la foi et la mène à la perfection. »
-Hébreux 12.1
-<h2>Témoignage</h2>
-« L’année 2022 fût difficile pour Martine et moi-même. En début d’année 2022 j’ai ressenti
-une douleur au bas du dos, je savais que ma sciatique revenait car j’en avais souffert 2 ans
-auparavant, puis elle avait disparue. Cette fois elle allait crescendo.
-Pour ceux qui ne me connaissent pas je suis quelqu’un d’assez actif, je n’aime pas rester
-sans rien faire. Me voilà donc à l’arrêt, marchant difficilement, position assise
-compliquée, allongée passe encore !
-Après toutes tentatives pour calmer la douleur (cortisone, morphine, 2 infiltrations et 3
-semaines en rhumatologie) rien n’y fait. Huit mois de souffrances assez intenses avant
-l’opération du 14 septembre tant attendue qui m’a enfin soulagé. Alors pendant tout ce
-temps d’épreuve, j’ai prié, pensé, ruminé....
-Pourquoi Dieu ne répond-il pas ? Il peut me guérir miraculeusement, que ma santé
-s’améliore rapidement. Pas de signe vraiment !
-J’ai essayé de penser les choses autrement.
-J’ai prié afin: D’accepter cette situation, de ne pas être de mauvaise humeur pour mon
-entourage pour Martine en particulier à mes côtés, d’avoir courage et force chaque jour,
-de me garder de la déprime, d’avoir de la patience, persévérance et la paix intérieure, de
-m’enlever toutes frustrations de ce que j’aurais pu faire durant tout ce temps, de penser à
-ceux qui souffrent bien plus que moi, de diriger toutes choses pendant l’opération très
-délicate, de tenir bon dans ma foi, ne pas abandonner etc.......
-Oui le Seigneur a répondu à beaucoup de prières. Martine pourrait témoigner plus que
-moi, j’ai essayé de ne pas lâcher, de garder le moral, d’avoir confiance. Le Seigneur m’a
-porté dans les moments les plus difficiles et Il est toujours à mes côtés.
-Aujourd’hui je vais mieux, je ressens encore des douleurs, soi-disant postopératoires. Il
-m’arrive d’avoir des moments de plénitudes, sans douleur. C’est alors l’état de Grâce !
-Merci Seigneur pour ta présence de chaque jour. Merci à Martine qui a tenu bon, rien
-lâché à mes côtés, ma famille. Merci à vous l’église, pour votre soutien dans la prière.
-Je vous laisse ce verset :
-Paul écrit : Ne soyez inquiets de rien, mais demandez toujours à Dieu ce qu’il vous faut. Et
-quand vous priez, faites vos demandes avec un coeur reconnaissant. Ainsi la paix de Dieu
-qui dépasse tout ce que nous pouvons comprendre, gardera vos coeurs et vos pensées
-unis au Christ Jésus. (Philippiens 4 v 7) »
-Michel
-<br/><br/>
-<center><h2>Et si on priait ?</h2></center>
-<br/>
-
-* Apportons au Seigneur dans un temps de silence
-tout ce qui encombre notre vie en ce moment et ce
-qui est source d’inquiétudes.
-* Remettons tout à nouveau notre vie à l’abri du
-Très Haut, et prions pour que Dieu renouvelle en
-nous Sa présence et Sa paix.
-* Prions pour tous ceux qui ont besoin de direction
-en ce moment, et pour ceux qui doivent faire des
-choix importants (études, travail, conjoint,
-déménagement, …)
-* Échangeons dans les Groupes de Maison sur le
-sujet du jour et prions les uns pour les autres afin
-de s'encourager.
-
+## Témoignage
+> « Pendant mon adolescence, l'envie de devenir un homme était prédominante. À
+l'époque, mes amis fumaient tous des cigarettes, et j'ai commencé pour ne pas me
+sentir exclu. Quelques années plus tard, alors que j'ai débuté un emploi à 16 ans et
+demi, mon salaire me permettait d'acheter facilement des cigarettes, ce qui était pour
+moi un bonheur relatif.\
+J'ai souvent tenté d'arrêter, mais ce n'était pas simple, car la cigarette était devenue une
+dépendance presque incontournable. À l'âge de 21 ans, j'ai découvert la foi et
+commencé à fréquenter régulièrement l'église. J'ai rejoint le groupe de jeunes, assisté
+aux cultes, et participé aux sorties du dimanche après-midi avec les jeunes. J'ai fait
+l'effort de ne pas fumer en leur présence, le faisant discrètement en m’éloignant
+quelque peu du groupe.\
+Cependant, le poids de cette habitude devenait de plus en plus lourd dans mon coeur.
+Ne parvenant pas à m'en libérer par moi-même, j'ai sincèrement demandé dans la
+prière l'aide de Dieu dans mon coeur. Un matin, en me rendant au travail, j'ai acheté un
+paquet de cigarettes comme d'habitude, j'en ai fumé une, puis une autre. Au moment
+d'allumer la suivante, une force s'est manifestée dans mon coeur, une force inexplicable
+me faisant réaliser que c'était nocif pour la santé et envers les autres.
+J'ai pris le paquet de cigarettes et l'ai jeté à la poubelle, malgré qu'il en restait beaucoup
+dans le paquet ; depuis j’en n'ai plus retouché une. J’ai compris aussi que c'était de
+l’argent évaporé pour rien.\
+J'ai compris que c'était la voix de Dieu qui me parlait au fond de mon coeur et me
+guidait. C’est un combat qu’Il m’a permis de vaincre dans Sa grâce et depuis ce jour, je
+ne tolère plus la cigarette, en particulier le tabac froid.
+Pour certains, cela peut sembler anodin, mais pour moi, c'était un miracle et une
+réponse à ma prière venant de Dieu.\
+Il est essentiel de confier toutes choses à Dieu afin qu'Il nous libère des habitudes qui
+nous semblent insurmontables.
+Pour Dieu, rien n'est impossible, même dans les petites choses. »\
+Gaëtano
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/rkUxdIjhp7E"
+<iframe src="https://www.youtube.com/embed/tC9aWcR5XQ0"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Mercredi 15](mercredi.md)<br/> <> <br/>
-[Jour suivant - Vendredi 17](vendredi.md)
+[Jour précédent - Mercredi 18](mercredi.md)-<>-
+[Jour suivant - Vendredi 20](vendredi.md)
