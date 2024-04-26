@@ -1,118 +1,86 @@
-# Mardi 17
-## Christ, notre Plénitude
+# Mardi 30
 
-*Le Fils est l'image du Dieu invisible, le premier-né de toute la création.
-En effet, c’est en lui que tout a été créé dans le ciel et sur la terre, le
-visible et l’invisible, trônes, souverainetés, dominations, autorités.
-Tout a été créé par lui et pour lui.
-Il existe avant toutes choses et tout subsiste en lui.
-Il est la tête du corps qu’est l'Eglise ; il est le commencement, le
-premier-né d'entre les morts, afin d'être en tout le premier.
-En effet, Dieu a voulu que toute sa plénitude habite en lui.
-Il a voulu par Christ tout réconcilier avec lui-même, aussi bien ce qui
-est sur la terre que ce qui est dans le ciel, en faisant la paix à travers
-lui, par son sang versé sur la croix.* Col 1:15-20
+*“Poussez vers Dieu des cris de joie, vous tous,
+habitants de la terre !
+Rendez-lui gloire pour ce qu’il est !
+Honorez-le par vos louanges !
+Parlez ainsi à Dieu : « Que tes actions sont imposantes ! »
+Devant ta puissance infinie, tes ennemis s’inclinent.
+Prosternée devant toi, la terre entière entonne un chant
+en ton honneur pour célébrer ta gloire.
+PAUSE
+Venez voir ce que Dieu a fait, car ses actions sont
+imposantes en faveur des humains :
+la mer changée en terre ferme !
+le fleuve passé à pied sec !
+Aussi nous exultons en lui.
+Car il gouverne pour toujours avec puissance,
+ses yeux surveillent les nations
+afin que les rebelles ne puissent pas se dresser contre lui.
+PAUSE
+Célébrez notre Dieu, ô peuples !
+Et faites retentir vos voix à sa louange !
+C’est grâce à lui que nous vivons :
+il nous a gardés de la chute.
+Tu nous as éprouvés, ô Dieu, tu nous as jetés au creuset
+comme on fait pour l’argent.
+Tu nous as pris au piège, tu nous as chargés d’un fardeau,
+tu as permis à l’ennemi de nous réduire sous son joug.
+Nous avons traversé le feu,
+nous avons dû passer par l’eau,
+mais tu nous en as fait sortir
+pour nous conduire à l’abondance.
+Je viens dans ta maison avec des holocaustes,
+je m’acquitte envers toi des vœux que je t’ai faits.
+J’accomplis les promesses prononcées par ma bouche
+au temps de ma détresse.
+Je t’offre en holocauste les bêtes les plus grasses,
+des béliers avec de l’encens.
+J’immolerai des taureaux et des boucs.
+PAUSE
+Venez, vous qui révérez Dieu, je vous raconterai
+ce qu’il a fait pour moi.
+Lorsque mes cris montaient vers lui,
+sa louange était sur ma langue.
+Si j’avais gardé dans mon cœur des intentions coupables,
+Dieu ne m’aurait pas écouté.
+Mais voyez : Dieu m’a entendu et il a été attentif
+à mes supplications.
+Loué soit Dieu, car il n’a pas repoussé ma prière,
+il me conserve son amour.”
+Psaume 66*
 
-D’après le dictionnaire, le mot “plénitude” signifie : “État de ce qui est complet, dans
-toute sa force”, ou bien “Qualité d'une chose ou d’une personne qui est absolue, entière,
-complète”.
+Avez-vous déjà fait l’expérience d’une marche avec un guide de
+montagne ? Sa connaissance et son expérience peuvent rendre la
+randonnée vraiment très différente et très enrichissante.
+Au lieu de marcher en suivant des panneaux indicateurs, la balade
+semble tout à coup beaucoup plus intéressante : on découvre des
+paysages et des recoins cachés, des faits géologiques intéressants ou
+une faune et une flore à côté desquels on serait certainement passés.
 
-Paul emploie ce mot plusieurs fois dans sa lettre aux Colossiens, en le rattachant à Christ, et
-avec 2 facettes en particulier :
+Lorsque l’on choisit de cheminer avec Dieu tous les jours, on s’instruit
+auprès de Lui ; on peut l’écouter parler de Son royaume, de Ses
+projets; on apprend et on découvre qui Il est vraiment.
+Notre chemin de vie s’embellit et on savoure cette présence à nos
+côtés.
+Nous vous invitons aujourd’hui à méditer ce Psaume 66.
 
-Dans le chapitre 1 du verset, 15 au verset 20, (passage que nous vous encourageons à
-apprendre ;) !), il est question de la plénitude de Dieu en la personne de Christ.
-Au verset 17 : **“Il est lui-même <ins>avant toutes choses</ins> et tout subsiste en Lui.”** et au verset 19 :
-**“En effet, Dieu a voulu que <ins>toute sa plénitude</ins> habite en Lui.”**.
-Paul nous rappelle que, dès le commencement, et dans toute l’Histoire, Christ révèle dans
-toute Sa personne qui est Dieu, Sa suprématie absolue sur tout ce qui existe, dans le ciel et
-sur la terre.
+**Prenez le temps de faire cette promenade avec Dieu ;**
 
-Au chapitre 2 , c’est de la plénitude en sagesse et en connaissance dont il est question,
-toujours en la personne de Christ.
-Verset 3 : **“C’est en Lui que sont cachés <ins>tous les trésors de la sagesse et de la
-connaissance</ins>”**.
+**Laissez-le vous parler de Lui, de Son ciel, de Son amour.**
 
-Paul souligne cela car les Colossiens pouvaient, à l’époque, être attirés par certains
-enseignements philosophiques florissants ; des discours séduisants mais qui n’attirent pas
-l’attention sur Christ seul.
-
-Christ devient alors une lumière parmi d'autres, mais pas LA lumière.
-C’est pourquoi Paul insiste sur leur union en Christ, dans lequel se trouve la « plénitude »
-que les enseignants de mensonges promettaient aux Colossiens.
-
-Colossiens 2 Verset 10 : **“Par votre union avec Lui, vous êtes pleinement comblés”.**
-
-Et nous ? Quelle place avons-nous fait à Christ dans nos vies ?
-
-Une « bonne place » ou toute la place ?
-
-Si Paul nous rappelle la primauté de Christ, c’est pour comprendre quelle place Christ occupe
-dans le plan de Dieu, et donc quelle place Christ doit tenir dans notre vie.
-En ayant la certitude de notre pardon en Christ (voir hier), nous accueillons Christ en nous et
-recevons la plénitude qu’Il nous donne en s’étant donné Lui-même.
-
-Et pourtant, nous oublions si souvent que Christ est tout, et cherchons ailleurs le secret de la
-plénitude qui semble nous manquer (travail, conjoint, développement personnel, loisirs,
-écrans…)
-
-Face à nos tentations résonne ce verset : “Vous avez tout pleinement en Christ”.
-
-“Vous” : c’est personnel.\
-“avez” : c’est présent.\
-“tout” : c’est absolu.\
-Dans quelle mesure ? “pleinement”.\
-Comment ? “en Lui”.
-
-Le repos, la liberté, la paix, l’amour, l’acceptation, le salut, l’avenir…. Tout est disponible en
-Christ.
-
-**Nous n’avons réellement besoin de rien d’autre : seulement Christ.**
-
-## Prière
-
-- Louons Dieu pour sa Majesté, sa Toute puissance et Sa suprématie sur la terre et
-dans le ciel.
-- Adorons notre Dieu qui s’est révélé pleinement en Christ.
-- Prenons un instant pour nommer ce qui a pris la place de Christ dans notre vie, ou ce
-que nous sommes tentés d'ajouter à cette “plénitude en Christ”. Demandons pardon à
-Dieu pour nos égarements, et demandons-Lui de nous remplir tout à nouveau de Sa
-plénitude.
-- Prions pour notre société, et les “solutions” qui sont proposées à nos contemporains;
-demandons à Dieu de nous donner des occasions de parler de Lui et de présenter Sa
-lumière.
-
-## Témoignage
-> « Donner un témoignage sur un attribut spécifique de Jésus relève d’un défi car quasiment
-dans toutes les circonstances de ma vie, j’en percevais plusieurs en même temps.
-Difficile de n’en relever qu’un : Il est le Tout-Puissant, Il est bon, Il est fidèle. La liste est
-longue, n’est-ce pas?\
-\
-Si je devais en retenir un, je retiendrais la fidélité de Jésus, lors d’une circonstance spécifique
-que j’ai déjà évoquée pour exprimer ma reconnaissance pour le soutien des Frères et Soeurs.
-Ce fut pendant une période éprouvante de ma vie de famille.\
-\
- En 2022, alors que nous étions dans un processus de déménagement et de travaux
-importants dans notre nouvel appartement, les médecins ont diagnostiqué un cancer du sein
-chez mon épouse\
-Elle devait passer par une opération puis par une chimiothérapie avec ce que cela implique
-en termes de fatigue et de besoin.\
-Ce fut aussi une période très intense en charge de travail et en responsabilité dans mon
-travail. Chaque jour j’avais à assurer plusieurs choses très différentes les unes des autres et
-parfois difficiles à synchroniser, affectant le temps de repos et de sommeil aussi bien le
-temps de culte personnel.\
-Jour et nuit, en tout temps, je percevais la voix de Jésus me disant “Je suis avec toi et Je suis
-avec ton épouse”; je saisissais Sa bonne main qui me tenait fermement pour traverser cette
-période sans “sombrer”.\
-Il a pourvu à tout ce dont j’avais besoin dans mon corps, dans mon travail et dans les travaux
-à travers les Frères et Soeurs. Mon épouse a aussi expérimenté Son oeuvre de guérison. »\
-Henri
-
+# SUJETS DE PRIERE
+- Prions pour la fidélité de Dieu à notre égard et aussi pour notre
+assemblée.
+- Soyons reconnaissants pour les réponses à nos prières,
+individuelles et communautaires.
+- Louons et Adorons Dieu pour qui Il est et pour Ses bienfaits vis-
+à-vis de Son peuple tout au long de l’Histoire
 <div class="container">
-<iframe src="https://www.youtube.com/embed/E1tQY_hQbG0"
+<iframe src="https://www.youtube.com/embed/QpczS0LWvpg"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
 
-[Jour précédent - Lundi 16](lundi.md)-<>-
-[Jour suivant - Mercredi 18](mercredi.md)
+[Jour précédent - Lundi 29](lundi.md)-<>-
+[Jour suivant - Mercredi 1er](mercredi.md)

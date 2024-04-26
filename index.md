@@ -1,43 +1,30 @@
-## (Re) Découvrir Christ dans Colossiens
+## Ensemble, par la foi
 
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
+_"Voir plus loin... partager, réfléchir, prier autour de l'avenir de l'église. C'est ce qui vous est proposé durant la semaine du 23 au 29 janvier.”_
 
-*“Et vous, qui dites-vous que je suis ?” Mat 16:15*
+Ainsi commençait notre premier livret de prière en janvier 2017. 7 ans plus tard, qu’en est-il de cette “vision” ?
 
-Que répondriez-vous à Jésus si Il vous posait la question aujourd’hui ?
-Tu es le Tout-puissant ?.... Le Seigneur des Seigneurs ? …Tu es mon ami ? …. le Bon Berger ?
-…. Tu es….
+Il est évident que notre situation a changé depuis ; le Covid, des départs, des arrivées….
+Et nous nous retrouvons avec cette même question : “Et après ? Seigneur, où veux- tu que nous allions ?”
+C’est pourquoi nous voulons à nouveau, et avec foi, nous mettre à l’écoute de notre Dieu, tous ensemble, pour cette nouvelle semaine de prière.
+A travers notamment le chapître 11 de la lettre aux Hébreux, nous verrons comment être encouragés à faire ensemble le pas suivant.Partager, réfléchir, prier autour du présent et de l’avenir de l’église, grâce à plusieurs rencontres qui nous sont proposées tout au long de la semaine, c’est ce que nous vous encourageons à vivre tous ensemble, avec, entre autres, deux occasions spéciales mercredi et samedi.
 
-Pour “Vivre en témoin de Jésus-Christ chaque jour”, nous avons plus que besoin de
-connaître Celui dont nous sommes témoins ; connaître qui Il est, ce qu’Il a fait, mais aussi cheminer avec Lui jour après jour, dans nos quotidiens, et nous laisser sans cesse émerveiller par le mystère révélé par grâce aux hommes pécheurs que nous sommes.
-
-C’est pourquoi nous vous invitons pour cette semaine de prière, à (re) découvrir la personne de Christ, telle que présentée par Paul dans sa lettre aux habitants de Colosses. Nous cheminerons avec Paul en étudiant quelques termes et attributs de Christ, et tenterons de voir ce que cela change pour nous, tant individuellement que collectivement.
-
-Plusieurs occasions nous sont données dans la semaine pour vivre ce temps de prière tous ensemble. Profitons-en !
-
-- **Dimanche 15 Octobre à 10h15** : Culte
-- **Lundi 16, mercredi 18 et vendredi 20 Octobre de 12h15 à 13h15** : Prière à l’église et par zoom
-- **Mardi 17 Octobre de 20h30 à 22h** :
-Soirée de louange et d’adoration à l’église
-- **Mercredi 18 ou Jeudi 19 Octobre de 20h30 à 22h** :
-Prière dans les groupes de maison
-- **Dimanche 22 Octobre à 10h15** : Culte
+- Lundi 29 avril à 12h30 : Marche de prière dans le quartier
+- Mardi 30 avril à 20h30 : Soirée de louange et prière
+- Mercredi 1er mai : Sortie fraternelle
+- Jeudi 2 mai à 20h30 : Prière dans les Groupes de Maison
+- Vendredi 3 mai à 12h30 : Marche de prière dans le quartier
+- Samedi 4 mai à 9h30 : Prière et restitution de la semaine autour d’un brunch
 
 
 ## Je participe en ligne
 
-- [Dimanche](dimanche.md)
- 15 - Introduction
-- [Lundi](lundi.md)
- 16 - Christ, notre Rédempteur
-- [Mardi](mardi.md)
- 17 - Christ, notre Plénitude
-- [Mercredi](mercredi.md)
- 18 - Christ, à qui nous sommes Unis
-- [Jeudi](jeudi.md)
- 19 - Christ, notre Vie
-- [Vendredi](vendredi.md)
- 20 - Christ, Chef de l’Eglise
-- [Samedi](samedi.md)
- 21 - Christ, notre Maître
+- [Dimanche 28](dimanche.md)
+- [Lundi 29](lundi.md)
+- [Mardi 30](mardi.md)
+- [Mercredi 1er](mercredi.md)
+- [Jeudi 2](jeudi.md)
+- [Vendredi 3](vendredi.md)
+- [Samedi 4](samedi.md)

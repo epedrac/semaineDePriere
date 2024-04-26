@@ -1,113 +1,82 @@
-# Lundi 16
-## Christ, notre Rédempteur
+# Lundi 29
 
-*Et vous, qui étiez morts à cause de vos fautes, et parce que vous
-étiez des incirconcis, des païens, Dieu vous a donné la vie avec le
-Christ. Il nous a pardonné toutes nos fautes.
-Car il a annulé l’acte qui établissait nos manquements à l’égard des
-commandements. Oui, il l’a effacé, le clouant sur la croix.
-Là, il a désarmé toute Autorité, tout Pouvoir, les donnant
-publiquement en spectacle quand il les a traînés dans son cortège
-triomphal après sa victoire à la croix.* Col 2:13-15
+_“C'est par la foi qu'Abel a offert à Dieu un sacrifice plus grand
+que celui de Caïn ; c'est grâce à elle qu'il a été déclaré juste,
+car Dieu approuvait ses offrandes,
+et c'est par elle qu'il parle encore bien qu’étant mort.
+C'est à cause de sa foi qu'Hénoc a été enlevé pour échapper à la
+mort, et on ne l’a plus retrouvé parce que Dieu l'avait enlevé.
+Avant d’être enlevé, il avait en effet reçu le témoignage
+qu'il était agréable à Dieu.”
+(extrait de Héb 11 : 4-6)_
 
+Le grand chapitre de Hébreux 11 commence par quelques explications
+sur la foi, mais l’auteur en vient très vite à des exemples concrets,
+comme si la foi se comprenait essentiellement à travers sa mise en
+pratique dans la vie des croyants.
 
-“Mes péchés sont pardonnés”, “Je suis sauvé”…
-Nous savons que ces affirmations sont centrales à notre foi, mais avec les années de vie
-chrétienne, elles perdent parfois de leur fraîcheur et nous avons régulièrement besoin d’être
-renouvelés dans notre compréhension du Salut.
-On peut pour cela s’appuyer sur la multitude d’images parlantes que nous trouvons dans la
-Bible pour décrire ce que Christ a accompli à la croix, et c’est notamment le cas dans ces
-quelques versets de Colossiens :
+Les deux premiers personnages choisis peuvent nous surprendre
+(Hébreux 11:4-6).
+La Bible ne nous dit en effet pas grand-chose sur Abel (Genèse 4.1-8)
+et Hénoc (Genèse 5.21-24).
+On sait qu’il pouvait y avoir pas mal de spéculations à leur sujet parmi
+les juifs, justement parce qu’il s’agissait de personnages assez
+mystérieux. Mais ces quelques versets d’Hébreux 11 nous recentrent
+sur l’essentiel.
 
-**v13** : Nous avons parfois besoin de nous rappeler de là d’où nous venons : il ne s’agit pas de
-se morfondre en pensant à notre vie passée, mais il est utile d’avoir une idée juste de notre
-condition ancienne pour pleinement comprendre ce qui a été accompli.
-Nos parcours peuvent être divers mais la conclusion est la même : que notre vie ait été très
-désordonnée ou plutôt bien rangée, que nous ayons grandi dans une communauté
-chrétienne ou que nous n’imaginions même pas l’existence de Dieu, avant notre conversion,
-nous étions tous “morts”, séparés de Dieu, “à cause de nos fautes”.
-Et par nous-mêmes, nous ne pouvions rien changer à cela.
+En effet, on peut imaginer toutes sortes de raisons pour lesquelles le
+sacrifice d’Abel a été accepté par Dieu et pas celui de Caïn, mais ce
+dont on est sûr, c’est que Dieu, qui voit dans les cœurs, a discerné
+dans le sacrifice apporté par Abel une expression d’adoration juste et
+qui lui était agréable.
+On peut spéculer sur les raisons pour lesquelles Hénoc a été enlevé au
+ciel sans connaître la mort, mais la Bible nous dit simplement qu’il « a
+marché avec Dieu » : il n’a pas simplement marché « devant Dieu » ou
+« sous le regard de Dieu », mais « avec Dieu », dans une relation de
+communion avec lui.
 
-**v14** : Mais notre acte de condamnation, qui établissait nos manquements à l’égard des
-commandements, et qui démontrait de façon irréfutable que nous méritions cette mort, a
-été “effacé”, “cloué à la croix”, crucifié avec Jésus : il n’existe plus, car “Dieu nous a pardonné
-toutes nos fautes”.
-Nous sommes réellement délivrés : Dieu “nous a arrachés au pouvoir des ténèbres et fait
-passer dans le royaume de son Fils bien-aimé” (1.13-14).
-Bien sûr, nous avons parfois encore à supporter des conséquences pratiques de nos fautes
-passées, mais nous n’avons plus à porter le poids de la condamnation.
-Le rédempteur était celui qui payait une rançon pour qu’un esclave soit affranchi.
-C’est bien ce que Christ a accompli pour nous : nous sommes libres !
+Ces deux personnages ne sont pas reconnus pour avoir fait des
+choses extraordinaires. Cela a peut-être été le cas, mais on ne le sait
+pas.
 
-**v15** : Ce verset fait allusion aux cortèges triomphaux que l’on pouvait observer à Rome : le
-général victorieux paradait sur son char, et derrière lui marchaient, publiquement humiliés,
-les chefs vaincus.
-Quel retournement ! Dans l’apparente faiblesse et humiliation de la croix, c’est au contraire
-toute la puissance divine qui a été mise en oeuvre, et la victoire pleine et entière a été
-acquise : l’ennemi a été “désarmé”.
+Mais s’ils nous sont présentés comme des exemples de foi, c’est parce
+que leur relation avec Dieu était juste.
+Dans l’adoration, Abel a apporté à Dieu ce qu’il avait de meilleur. Et
+Hénoc a cheminé pendant sa longue vie en communion avec Dieu.
+L’expression « marcher avec Dieu » est peu utilisée dans la Bible, mais
+le prophète Michée nous dit que c’est bien ce que Dieu attend de
+chacun de nous :
 
-Même si ce n’est qu’au retour de Jésus que cette victoire sera éclatante aux yeux de tous, et
-même si le combat peut encore nous sembler rude, la victoire est déjà acquise. Nous
-connaissons le dénouement de l’Histoire et cela change complètement notre perspective !
+__“On t’a fait connaître, homme, ce qui est bien et ce que l’Éternel
+attend de toi : c’est que tu mettes en pratique le droit, que tu
+aimes la bonté, et que tu marches humblement avec ton Dieu.”__
+Michée 6.8
 
-## Prière :
+Pendant cette semaine, nous voulons nous placer à l’écoute de Dieu,
+et discerner ensemble les prochaines étapes de notre marche de foi, à
+l’église du Drac.
+Mais cela n’est possible que si notre relation avec Dieu est bien
+ajustée.
+Alors à la lumière de ce verset de Michée, **prenons le temps de
+méditer ce que l’Éternel attend de nous : mettre en pratique le
+droit, aimer la bonté, marcher humblement avec Dieu.
+Laissons-nous interpeller sur les points où nous avons besoin de
+progresser, individuellement et en Église.**
 
-- Remercions Notre Dieu pour : notre rédemption, notre libération du péché, et pour
-la victoire qui est déjà acquise.
-- Y a-t-il un domaine où nous sentons encore le poids de la condamnation ?
-Remettons le à Dieu qui nous a pardonné “toutes nos fautes”.
-- Prions que nous soyons à nouveau émerveillés de notre Salut, et en faisions un
-sujet de joie.
-- Demandons à Dieu de nous donner des occasions de témoigner de la libération
-que nous avons connue.
-- Prions pour ceux qui s’approchent de Dieu, notamment qui ont été touchés
-pendant les camps cet été.
-- Prions pour ceux qui ont entendu le message, mais qui n’y ont pas encore
-répondu.
+# SUJETS DE PRIERE
 
-## Témoignage :
-
-> « Je ne sais pas trop où commencer mon témoignage ou quelle partie donner, parce
-que j'ai eu beaucoup d'épreuves dans ma vie !
-Mais un jour il m'est arrivé un accident grave à la main et j'ai dû aller à l'hôpital, et
-c'est à cette occasion que j'ai vu la lumière de Jésus.
-J'étais dans un état très sombre de ma vie, mais j'ai demandé à Jésus de ne pas
-m'abandonner : je lui ai demandé de ne pas me laisser mourir, parce que je voulais
-m'en sortir, et je pensais aussi au fait que j'étais une maman.
-C'est là où j'ai vu la lumière de Jésus qui m'a éblouie pendant un certain temps,
-pendant que j'étais inconsciente. Quand je me suis réveillée à l'hôpital, j'ai remercié
-Jésus de m'avoir sauvée. Il a été là pour moi, et le sera toujours : il faut faire confiance
-à Jésus !
-Ce qui m'a le plus marquée, c'est d'avoir ressenti sa main sur mon épaule, de ressentir
-sa présence en moi, et surtout sa fidélité. Je sais qu'il ne me laissera jamais, même si
-je suis dans une période compliquée de ma vie : Jésus ne nous abandonne jamais !
-Il faut être patient, mais peu importe les situations, il est à notre écoute.
-Je finis en partageant un passage sur Jésus qui me marque beaucoup :
-« Voilà pourquoi, maintenant que j’ai entendu parler de votre foi dans le Seigneur
-Jésus et de votre amour pour tous les croyants, je ne cesse pas de remercier Dieu à
-votre sujet. Je pense à vous dans mes prières et je demande au Dieu de notre Seigneur
-Jésus-Christ, au Père glorieux, de vous donner l’Esprit de sagesse qui vous le révélera
-et vous le fera vraiment connaître.
-Qu’il ouvre vos yeux à sa lumière, afin que vous compreniez à quelle espérance il vous
-a appelés, quelle est la richesse et la splendeur des biens destinés à ceux qui lui
-appartiennent, et quelle est la puissance extraordinaire dont il dispose pour nous les
-croyants. Cette puissance est celle-là même que Dieu a manifestée avec tant de force
-quand il a ramené le Christ d’entre les morts et l’a fait siéger à sa droite dans le monde
-céleste.
-Le Christ y est placé au-dessus de toute autorité, de tout pouvoir, de toute puissance,
-de toute domination et de tout autre titre qui puisse être cité non seulement dans ce
-monde-ci mais aussi dans le monde à venir.
-Dieu a mis toutes choses sous les pieds du Christ et il l’a donné à l’Église comme chef
-suprême.
-L’Église est le corps du Christ ; c’est en elle que le Christ est pleinement présent, lui qui
-remplit tout l’univers.
-Éphésiens 1.15-23. »
-Maïara
+- Dieu voit dans nos coeurs : demandons-Lui pardon pour notre
+orgueil et nos suffisances.
+- Prions que Dieu renouvelle notre désir de marcher avec Lui jour
+après jour.
+- Prions pour que nous restions dépendants de Dieu, pas en
+comptant sur nos talents ou nos propres forces, mais sur Sa
+grâce et Son Esprit.
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/1sUY6OjaWC0"
+<iframe src="https://www.youtube.com/embed/I9G777O3BOg"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
 
-[Jour précédent - Dimanche 15](dimanche.md) -<>- [Jour suivant - Mardi 17](mardi.md)
+[Jour précédent - Dimanche 28](dimanche.md) -<>- [Jour suivant - Mardi 30](mardi.md)

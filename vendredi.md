@@ -1,72 +1,70 @@
-# Vendredi 20
-## Christ, Chef de l’Eglise
+# Vendredi 3
+**“Dieu a approuvé tous ces gens à cause de leur foi, et
+pourtant, aucun d’eux n’a reçu ce qu’il leur avait promis.
+C’est que Dieu avait prévu quelque chose de meilleur pour
+nous : ils ne devaient donc pas parvenir
+sans nous à la perfection.”
+(extrait de Héb 11 : 32-40)**
 
-*“Il est la tête du corps, qu’est l’Eglise.”*
-Col 1:18
+On pourrait s’imaginer qu’en développant les mêmes caractéristiques
+de foi qu’Hénoc, Abraham ou Moïse, on vivra des expériences tout
+aussi extraordinaires.
 
-Lecture du jour : Col 1:15 à 2:1
+Mais le contraste entre les versets 33 à 35 d’une part, et 36 à 38
+d’autre part, nous ramène à la réalité, parfois perturbante pour nous :
+« Dieu a approuvé tous ces gens à cause de leur foi » (v39, Semeur), et
+pourtant, ces vies de foi, toutes aussi belles et agréables à Dieu, ont
+conduit à des issues radicalement différentes.
 
-La mention de l’Église en plein milieu de cet hymne majestueux peut par certains
-côtés nous surprendre, nous sembler un peu terre à terre parmi les déclarations sur la
-plénitude et la souveraineté de Christ sur l’univers tout entier.
-Mais cela nous rappelle justement l’importance de l’Église dans le plan de Dieu : elle est
-indissociable de Jésus, elle est « son corps».
+En repensant à tous les exemples qui nous sont donnés dans ce
+chapitre, c’est bien l’attitude de foi de chacun qui doit nous inspirer.
+L’issue, elle, dépend de Dieu.
+Lorsqu’on voit Dieu agir de belle façon à travers notre Église, on se
+réjouit bien sûr !
+Mais ce n’est pas la preuve que notre foi était particulièrement forte,
+ou qu’on a été particulièrement performant.
+Et quand les résultats ne sont pas ceux qu’on espérait, ou lorsque les
+difficultés apparaissent, ce n’est pas la preuve qu’on a dû se tromper,
+ou manquer de foi.
+Bien sûr, remettons-nous régulièrement en question. Nous ne
+sommes certainement pas meilleurs qu’Abraham, Sara, Moïse ou
+David, qui ont failli plus d’une fois. Mais ce qui pour nous s’apparente
+à la réussite du projet n’est pas une récompense de foi.
 
-Cela a des conséquences très concrètes pour Paul : il sert l’Église, même les parties qu’il ne
-connaît pas, parce qu’il sert Christ (2.1). Plus encore, il est prêt à souffrir pour elle, parce
-que c’est le corps de Christ (1.24). (Il ne faudrait pas comprendre de ce verset que les
-souffrances de Jésus à la croix n’étaient pas suffisantes pour accomplir la victoire sur le
-péché, mais plutôt que les souffrances de Paul participent à l’accomplissement du plan de
-Dieu en faisant croître son Église). Combien est précieuse l’Eglise de Christ !
+Nous n’avançons pas pour autant complètement en aveugle.
 
-**2.19 : « C’est pourtant de la tête que tout le corps, bien nourri et solidement assemblé par
-ses articulations et ses liens, tire la croissance que Dieu donne ».**
+La foi, c’est bien « l’assurance des choses qu’on espère » : les
+promesses de Dieu sont infaillibles, et surtout, nous connaissons,
+encore plus clairement que les croyants de l’Ancien Testament
+mentionnés dans ce chapitre, la fin de l’Histoire (v39-40).
+Mais la façon dont Dieu conduit les choses vers cet accomplissement
+peut nous surprendre.
 
-Notre union avec Christ a aussi pour conséquence directe de nous lier à chacun des
-membres du corps de Christ : ceux que l’on connaît comme ceux qui habitent à l’autre bout
-du monde, ceux que l’on apprécie beaucoup, comme ceux que l’on a plus de mal à aimer.
+Alors, en construisant nos projets, avançons pas à pas par la foi, dans
+l’obéissance, dans la confiance, et sans crainte.
+Les résultats peuvent être bien plus extraordinaires que ce que nous
+pouvons même imaginer, et ils peuvent aussi parfois nous sembler
+moins éclatants que ce que nous aurions souhaité.
 
-Tout au long de l’épître, nous voyons comment Paul vit cette réalité : il ne connaît pas tous
-les chrétiens à Colosses, mais leur statut commun devant Christ (et les témoignages qu’il a
-reçu sur la réalité de leur foi) lui permet de s’adresser à eux comme à des “frères et soeurs
-fidèles” (1.2), dont il peut demander les prières (4.3).\
-Mais Paul connaît aussi personnellement un nombre impressionnant de chrétiens, et ces
-relations sont un encouragement précieux dans son ministère : il bénéficie de la
-collaboration de “frères bien aimés”, de “fidèles compagnons de service” (4.7-16). Il
-encourage d’ailleurs les Colossiens à faire de même en maintenant les liens avec leurs
-voisins de Laodicée (4.16)
+Mais en toute chose, notre Dieu est maître de l’issue… et c’est
+tellement mieux ainsi !
 
-Ces relations entre les membres du corps de Christ nous sont indispensables. Mais il ne
-faudrait pas sauter d’étape : notre union avec nos frères et soeurs passe par Christ, et est
-dépendante de notre union à Lui : il est réellement « le chef », « la tête ».
+**Prenons le temps de remettre l’issue de nos projets à la
+souveraineté de Dieu, et demandons-lui de nous équiper pour
+accepter la part de difficulté qui peut y être associée.**
 
-Tout projet, toute action de l’Église ne peut se construire qu’en Jésus. Même lorsque nous
-avons des affinités avec d’autres chrétiens, que nous partageons une vision commune, (et
-on s’en réjouit lorsque c’est le cas !), cela ne suffira pas à construire une oeuvre valable : c’est
-de l’union à Christ que vient la croissance du corps tout entier, et cette croissance est un don
-de Dieu.
-
-Tournons nous vers lui pour lui remettre ce corps qui lui est si précieux, et qui, sans sa tête,
-n’est rien.
-
-# Prière
-- Remercions Dieu pour l’Eglise, qu’Il a voulue, et dans laquelle nous avons chacun
-notre place.
-- Remercions Dieu parce qu’il a donné Christ, comme chef à l’Eglise (heureusement
-que la direction ultime n’est pas humaine !), et prions que nous soyons ouverts à sa
-direction, en particulier pour notre église.
-- Remercions Dieu pour les liens qui nous unissent, pour la possibilité de le vivre
-concrètement (notamment par la prière) y compris avec ceux qui sont loin / qu’on ne
-connaît pas.
-- Remercions Dieu pour chacun qui a été donné à notre église locale.
-- Prions pour ceux qui choisissent de s’engager à plein temps pour servir l’Église ; que
-Dieu les qualifie et les équipe pour ce ministère.
+# SUJETS DE PRIERE
+- Louons Dieu parce qu’il est maître de toute chose, et que son
+oeuvre s’accomplit.
+- Disons à Dieu notre désir de nous soumettre à sa volonté
+concernant nos projets de vie d’Eglise et de bâtiment.
+- Continuons de nous mettre à son écoute concernant ces projets
 
 <div class="container">
-<iframe src="https://www.youtube.com/embed/bD6dCZzuMlw"
+<iframe src="https://www.youtube.com/embed/ZMfGoLcQc_A"
 frameborder="0" allowfullscreen class="video"></iframe>
 </div>
 
-[Jour précédent - Jeudi 19](jeudi.md)-<>-
-[Jour suivant - Samedi 21](samedi.md)
+[Jour précédent - Jeudi 2](jeudi.md)-<>-
+[Jour suivant - Samedi 4](samedi.md)
 
