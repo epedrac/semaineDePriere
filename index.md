@@ -1,4 +1,4 @@
-## Ensemble, par la foi
+## Ruth, Vivre la providence de Dieu dans le quotidien
 
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 

@@ -80,5 +80,6 @@ croître dans notre ressemblance à Christ.
 # Aujourd'hui 
 9h30 : Brunch et Prière
 à l’église
+
 [Jour précédent - Vendredi 4](vendredi.md)<br/>
 [Jour suivant - dimanche 6](dimanche2.md)<br/>
