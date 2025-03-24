@@ -2,29 +2,31 @@
 
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
-_"Voir plus loin... partager, réfléchir, prier autour de l'avenir de l'église. C'est ce qui vous est proposé durant la semaine du 23 au 29 janvier.”_
 
-Ainsi commençait notre premier livret de prière en janvier 2017. 7 ans plus tard, qu’en est-il de cette “vision” ?
+_“Que la Parole de Christ réside au milieu de vous dans toute sa richesse.” Col 3.16_
 
-Il est évident que notre situation a changé depuis ; le Covid, des départs, des arrivées….
-Et nous nous retrouvons avec cette même question : “Et après ? Seigneur, où veux- tu que nous allions ?”
-C’est pourquoi nous voulons à nouveau, et avec foi, nous mettre à l’écoute de notre Dieu, tous ensemble, pour cette nouvelle semaine de prière.
-A travers notamment le chapître 11 de la lettre aux Hébreux, nous verrons comment être encouragés à faire ensemble le pas suivant.Partager, réfléchir, prier autour du présent et de l’avenir de l’église, grâce à plusieurs rencontres qui nous sont proposées tout au long de la semaine, c’est ce que nous vous encourageons à vivre tous ensemble, avec, entre autres, deux occasions spéciales mercredi et samedi.
+Quel privilège d’avoir accès à un trésor tel que la Parole de Dieu ! C’est pourquoi nous vous invitons pour cette nouvelle semaine de prière, à étudier le livre de Ruth.
 
-- Lundi 29 avril à 12h30 : Marche de prière dans le quartier
-- Mardi 30 avril à 20h30 : Soirée de louange et prière
-- Mercredi 1er mai : Sortie fraternelle
-- Jeudi 2 mai à 20h30 : Prière dans les Groupes de Maison
-- Vendredi 3 mai à 12h30 : Marche de prière dans le quartier
-- Samedi 4 mai à 9h30 : Prière et restitution de la semaine autour d’un brunch
+Nous verrons comment cette histoire en apparence ordinaire nous encourage à méditer sur nos vies : comment voyons-nous la Providence de Dieu dans notre quotidien ? Comment vivons-nous les périodes d’épreuves, les temps de silence de Dieu ?
 
+Au fur et à mesure de la lecture, nous apprendrons à ne pas négliger ou mépriser l’ordinaire, mais à y discerner la providence extraordinaire de Dieu. Nous prions que ces méditations soient une précieuse occasion de rencontrer Dieu par Sa Parole.
+
+## Rencontres de la semaine
+
+- **Lundi 31 mars à 12h30** : Prière à l’église, par zoom et selon le secteur de travail
+- **Mardi 1er avril à 20h30** : Soirée de louange et prière
+- **Jeudi 3 avril à 20h** : Réunion de prière interéglises dans les locaux de l’ADD, 86 Cours Berriat à Grenoble
+- **Vendredi 4 avril à 12h30** : Prière à l’église, par zoom et selon le secteur de travail
+- **Samedi 5 avril à 9h30** : Prière autour d’un brunch à l’église
+- **Dimanche 6 avril à 10h15** : Culte de louange, suivi d’une Agape et d’une sortie/balade (selon la météo)
 
 ## Je participe en ligne
 
-- [Dimanche 28](dimanche.md)
-- [Lundi 29](lundi.md)
-- [Mardi 30](mardi.md)
-- [Mercredi 1er](mercredi.md)
-- [Jeudi 2](jeudi.md)
-- [Vendredi 3](vendredi.md)
-- [Samedi 4](samedi.md)
+- [Dimanche 30](dimanche.md)
+- [Lundi 31](lundi.md)
+- [Mardi 1er](mardi.md)
+- [Mercredi 2](mercredi.md)
+- [Jeudi 3](jeudi.md)
+- [Vendredi 4](vendredi.md)
+- [Samedi 5](samedi.md)
+- [Dimanche 6](dimanche2.md)

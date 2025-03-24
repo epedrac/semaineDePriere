@@ -1,103 +1,84 @@
-# Samedi 4
+# Samedi 5
+# Les relations entre les personnages (Ruth 3)
 
-*“C’est pourquoi, nous aussi
-qui sommes entourés d’une telle foule de témoins,
-débarrassons-nous de tout fardeau, et du péché
-qui nous cerne si facilement de tous côtés,
-et courons avec endurance l’épreuve
-qui nous est proposée.
-Gardons les yeux fixés sur Jésus,
-qui nous a ouvert le chemin de la foi et
-qui la porte à la perfection.
-Parce qu’il avait en vue la joie qui lui était réservée,
-il a enduré la mort sur la croix,
-en méprisant la honte attachée à un tel supplice,
-et désormais il siège à la droite du trône de Dieu.
-Héb 12 : 1-2*
+Les cinq premiers versets du livre de Ruth nous amènent au constat de la
+grande solitude de Naomi après le décès de tous ses proches : **«Naomi resta
+seule, privée à la fois de ses deux fils et de son mari»** (1.5).
+Mais dès le verset suivant, ses belles-filles apparaissent dans le récit et tout
+le reste de l’histoire est construit autour des relations qui se nouent entre les
+différents personnages.
 
-Après tous les exemples de foi de Hébreux 11, l’auteur poursuit en
-donnant une image de la vie chrétienne que l’on retrouve plusieurs
-fois dans le nouveau testament : celle d’une longue course.
+## Des personnages qui se parlent
+Vous avez peut-être remarqué la place importante des dialogues dans cette
+histoire : ils occupent plus de la moitié des versets.
+On n’y prête peut-être pas attention : après tout, il est assez normal que les
+gens se parlent.
 
-En général, les séances d’endurance ne sont pas les cours de sport
-que les collégiens préfèrent ! Même si avec le temps on peut
-apprendre à apprécier cet effort, ce n’est jamais facile.
-Et c’est aussi vrai de nos vies de foi. Mais dans ces quelques lignes, on
-ne trouve pas simplement un appel à persévérer, on trouve aussi
-plusieurs clés pour nous permettre de maintenir le cap :
+Mais ce n’est pas si anodin que cela lorsqu’on remarque qu’il s’agit
+d’échanges entre des personnes qui n’ont pas grand-chose en commun : des
+générations différentes, des cultures différentes, des statuts différents.
+C’est encore plus marquant quand on voit que ces conversations n’ont rien de
+superficiel, mais montrent au contraire une vraie attention réciproque l’un
+pour l’autre. Même les salutations sont marquées par des bénédictions (2.4) !
+Il y a là peut-être un encouragement pour nous à cultiver une diversité de
+relations, notamment avec ceux qui ne nous ressemblent pas.
 
-**“Étant donc entourés d’une si grande nuée de témoins...“**
+## Des relations inspirantes
 
-Dans cette course de foi, nous ne sommes pas seuls !
+Les relations les plus développées dans ce récit sont certainement celles
+entre Naomi et Ruth, et entre Boaz et Ruth.
+On a l’habitude de lire des histoires de relations complexes entre belle-mère et
+belle-fille, mais Ruth et Naomi nous montrent un tout autre modèle, avec une
+grande affection réciproque qui s’exprime par un soutien mutuel dans une
+belle complémentarité : Ruth apporte une présence et une aide pratique et
+matérielle à Naomi, et Naomi accompagne et conseille Ruth dans sa
+découverte d’une nouvelle culture et d’une nouvelle foi.
 
-On court en équipe, et nous sommes appelés à nous soutenir les uns
-et les autres pour parvenir, ensemble, au but.
-Mais en renvoyant à tous les exemples du chapitre 11, l’auteur nous
-invite surtout à prendre un pas de recul, et à voir notre part dans
-cette course comme une étape d’un relais qui traverse toute l’Histoire
-: nous vivons notre foi à la suite d’une grande série de témoins qui se
-sont succédés de génération en génération.
-Comme nous l’avons vu tout au long de la semaine, les exemples de
-nos prédécesseurs nous interpellent parfois sur des points précis de
-la vie de foi.
-Mais au-delà de cela, quel encouragement de savoir que ce que nous
-pouvons vivre au Drac s’inscrit dans une série ininterrompue de
-croyants depuis Abel, qui ont vécu leur foi d’une multitude de façons
-différentes, qui ont chacun eu leur parcours de vie avec ses joies et
-ses épreuves, mais qui ont tous mis leur confiance en Dieu.
+La relation repose sur un engagement fort de chacune, mais elle est
+équilibrée, bénéfique à toutes les deux.
 
-**Alors louons Dieu, qui est fidèle de génération en génération, et
-qui ne permettra pas que la chaîne se rompe !**
+Boaz lui-même reconnaît que son couple avec Ruth n’allait pas de soi (3.10).
+Mais malgré leur différence d’âge, de culture et de condition sociale, leur
+relation est marquée par un grand respect mutuel.
+Ruth reconnaît l’âge et le statut de Boaz en se présentant à lui comme « sa
+servante ». Mais elle reconnaît surtout que c’est celui qui lui fait grâce (2.10).
+Boaz ne cherche jamais à profiter de la vulnérabilité de Ruth, et se montre au
+contraire généreux.
+Mais surtout, il n’hésite pas à mettre en avant ses qualités, et à exprimer très
+ouvertement son respect pour elle (2.12, 3.10-11).
 
-**“Rejetons tout fardeau et le péché qui nous enveloppe si
-facilement.“**
-Si la vie de foi n’est pas facile, nous nous compliquons aussi parfois
-nous-mêmes les choses, en essayant de courir bien chargés !
-La Bible est toujours réaliste : le péché nous enveloppe facilement, et
-cela reste le cas tout au long de la course de la vie chrétienne. Alors
-ne nous décourageons pas dans cette lutte, reconnaissons nos fautes,
-remettons-nous à celui qui est fidèle et juste pour nous pardonner, et
-surtout qui nous permet de vivre en nouveauté de vie. Mais notons
-que le péché n’est pas la seule chose qui peut nous alourdir : il peut
-aussi y avoir d’autres fardeaux : des soucis, des blessures, ou tout
-simplement des activités qui ne sont pas mauvaises en soi mais qui
-nous accaparent.
+L’amitié et le respect mutuel, malgré les différences : voilà deux belles
+expressions de l’amour fraternel qui peuvent encore nous inspirer !
 
-**Prenons le temps de demander à Dieu de nous montrer si nous
-avons des fardeaux et des péchés que nous devons rejeter pour
-poursuivre notre course dans les meilleures conditions.**
+## Regarder à l’intérêt de l’autre
+En étudiant les relations entre les différents personnages, on se rend compte
+qu’un principe revient constamment : prendre d’abord en considération les
+intérêts des autres.
+Naomi pense en premier au bien de Ruth et Orpa (1.8-13) ; Ruth se met au
+service de Naomi (2.2) ; Boaz se préoccupe de la sécurité de Ruth et se
+montre généreux envers elle et Naomi (2.16-17, 3.15) ; Naomi se préoccupe de
+la situation de Ruth (3.1) ; Boaz et Ruth veillent respectivement à l’honneur de
+l’autre ; Boaz se préoccupe des droits du parent qui avait droit de rachat (3.12-
+13).
 
-**“Gardons les yeux fixés sur Jésus, qui fait naître la foi et qui la
-mène à la perfection.“**
+Ce sont des exemples pratiques et concrets, mais qui engagent, parfois pour
+toute une vie !
 
-Lorsqu’on se fixe des objectifs, lorsqu’on concentre notre énergie sur
-la prochaine étape à atteindre, il est possible de perdre de vue la
-ligne d’arrivée.
-Alors prions que Dieu nous permette de rester fixés sur l’essentiel.
-Nos projets peuvent être beaux, ils demanderont certainement de
-l’engagement, mais ils ne seront jamais notre but ultime. C’est vers
-Jésus que nous voulons regarder : son sacrifice à la croix définit le
-début de notre chemin de foi, et l’éternité avec lui marque la ligne
-d’arrivée.
-Et entre les deux, nous savons qu’Il est avec nous, tous les jours, et
-qu’à travers tout ce que nous pouvons vivre, en particulier ensemble
-en Église, il nous transforme et mène notre foi à la perfection.
+Qu’ils nous encouragent à mettre en pratique ce principe auquel nous sommes
+aussi appelés, à la suite de Christ :
+**«Que chacun de vous, au lieu de regarder à ses propres intérêts, regarde
+aussi à ceux des autres»** (Philippiens 2.4)
 
 # SUJETS DE PRIERE
-- Prions pour toutes les personnes qui composent l’église du
-DRAC : enfants, jeunes, moins jeunes.
-- Soyons reconnaissants pour l’enseignement de la Parole que
-nous pouvons chacun recevoir le dimanche.
-- Prions pour que la Bonne Nouvelle soit répandue sur Grenoble et
-son agglomération, à travers les églises qui sont représentées.
-- Prions aussi pour la bonne entente et la collaboration des églises
-au sein de la pastorale.
-- Demandons à Dieu de nous accompagner pour nos futurs
-projets, en lien avec ce que nous aurons reçu et entendons de
-Lui cette semaine.
-<div class="container">
-<iframe src="https://www.youtube.com/embed/B-OyWPhKv-Q"
-frameborder="0" allowfullscreen class="video"></iframe>
-</div>
+- Prions pour le maintien de l'unité dans l'Eglise et l'approfondissement de
+nos relations fraternelles, notamment entre générations.
+- Reconnaissons devant Dieu les domaines de nos vies où nous avons
+tendance à regarder uniquement à nous-mêmes et peinons à prendre en
+considération les intérêts des autres, et demandons-Lui de nous faire
+croître dans notre ressemblance à Christ.
 
-[Jour précédent - Vendredi 3](vendredi.md)<br/>
+# Aujourd'hui 
+9h30 : Brunch et Prière
+à l’église
+[Jour précédent - Vendredi 4](vendredi.md)<br/>
+[Jour suivant - dimanche 6](dimanche2.md)<br/>

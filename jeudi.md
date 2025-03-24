@@ -1,90 +1,62 @@
-# Jeudi 2
+# Jeudi 3
 
-*“Par la foi, Moïse, après sa naissance, a été tenu caché
-pendant trois mois par ses parents, car {...}
-ils ne se sont pas laissés intimider par le décret du roi.”
-“Par la foi, il a quitté l’Egypte sans craindre
-la fureur du roi et il est resté ferme,
-en homme qui voit le Dieu invisible.”
-(extrait de Héb 11: 23-29)*
+## BOAZ (Ruth 2.1-16 et 4.1-8)
+La première chose que l’on apprend sur Boaz est qu’il est «puissant et riche»
+(2.1), et dans la plupart des histoires, une telle description initiale n’augure
+rien de bon.
 
-Alors que cela fait plusieurs années qu’ils se sont installés en Egypte,
-la situation des Israelites se détériore et le pharaon, inquiet de leur
-grand nombre, les réduit en esclavage.
-Il en vient même à les persécuter en ordonnant de jeter dans le
-fleuve tous les garçons nouveau-nés des Hébreux (Exode 1:22).
-Dans ce climat de tension et d’oppression, deux époux donnent
-naissance à un beau bébé : c’est un petit garçon.
-Que faire ? Quel avenir pour ce petit ?
-La mère décide de cacher le petit Moïse. Par la foi.
+Particulièrement dans un contexte où **«chacun faisait ce qui lui semblait bon»**,
+il aurait été très facile d’utiliser sa puissance et sa richesse pour son propre
+intérêt !
 
-Une foi qui ne s’est pas laissée intimider.
-Une foi qui n’a pas abandonné, mais qui s’est abandonnée à son Dieu.
-Une foi attachée à un Dieu puissant dont certainement cette mère
-avait entendu parlé de nombreuses fois.
-Une foi dans le seul vrai Dieu, le Dieu d’Abraham, d’Isaac et de Jacob,
-Celui qui règne sur toute autorité.
+Mais pour Boaz, « faire ce qui lui semblait bon », c’était faire « le bien » :
 
-Cette femme ne s’est pas arrêtée à la situation angoissante, aux
-ordres du pharaon ou à ses peurs.
-Elle a confié son enfant dans les mains de son Dieu, avec une foi
-extraordinaire.
+## Agir selon la justice :
+Boaz a le souci de respecter la loi, qu’il s’agisse du glanage, ou du droit de
+rachat. Il l’applique avec rigueur, en veillant à respecter les droits de chacun
+(3.12), mais surtout avec générosité : il permet par exemple à Ruth de glaner
+au-delà de ce que demande la loi (2.15-16).
+On retrouve chez lui l’esprit du sermon sur la montagne ! Ce n’est pas une
+simple obéissance aveugle à la lettre de la loi, mais l’esprit de la Loi qu’il met
+en oeuvre.
 
-Plusieurs années plus tard, après son passage dans le désert et sa
-rencontre avec Dieu (Exode 3-4), Moïse revient en Egypte avec la
-mission de faire sortir les Israélites du pays où ils sont esclaves.
-Il ne revient ni en vainqueur, ni sûr de lui : il constate les résistances,
-les incompréhensions, et les défis que cela représente, pour lui et
-pour le peuple.
-Mais “il est resté ferme et n’a pas craint la fureur du Roi” (voir le
-verset du jour).
+Boaz n’hésite pas à utiliser ses ressources et son droit, mais ce n’est pas pour
+son propre intérêt. C’est au contraire pour agir avec justice, pour le bien des
+autres, et en veillant à ne léser personne.
 
-Alors d’où lui vient cette foi ? Dans le fait de voir le Dieu invisible.
-Quel paradoxe ! Comment peut-on voir quelque chose d’invisible ?
-On peut aisément croire à ce que l’on voit, croire à ce que nous
-ressentons ou à ce que nos émotions nous dictent.
+## Montrer du respect envers chacun :
+Boaz est le patron, et c’est intéressant de voir comment il interagit avec ses
+employés : il les salue, échange avec eux (2.4).
+Il est clairement celui qui prend les décisions, mais il utilise son autorité pour
+leur demander d’agir eux aussi avec justice (2.9).
+Et il est suffisamment attentif à ce qui se passe, et connaît suffisamment ses
+servantes, pour remarquer rapidement la présence d’une intruse (2.5).
 
-Lorsque l’on relit le passage des plaies d’Egypte, il est frappant de
-voir comme Dieu agit puissamment, mais surtout, combien de fois
-Dieu parle, en particulier à Moïse (combien de fois relevez-vous les
-mots “L’Eternel dit” dans les chapitres 6 à 12 ?).
-Au coeur de cette mission, c’est bien Dieu le vrai libérateur de Son
-peuple.
-Et Moïse, par la foi, reste ferme et ne craint pas ce qui pourrait, à vue
-humaine, être complètement perdu d’avance.
-
-Parfois, on s’imagine que ceux qui ont ce genre de foi sont
-particulièrement courageux, ou qu’ils ont un tempérament vraiment
-incroyable.
-
-La Bible nous dit en Romains 10 au verset 12 que **“la foi vient de ce
-qu'on entend et ce qu'on entend vient de la parole de Dieu.”**
-
-Ce n’est pas une question de courage ou d’envie, mais une question
-d’écoute.
-
-Alors, qui écoutons-nous ?
-
-Sommes-nous plus réceptifs à ce que nous voyons, aux obstacles qui
-se dressent devant nous et à nos peurs, plutôt que d’écouter et de
-nous confier en un Dieu invisible mais bien plus puissant ?
-Est-ce la crainte sainte et respectueuse de Dieu qui guide nos pas ?
-Où plaçons-nous notre foi ?
+Son attitude envers Ruth est tout aussi respectueuse : alors qu’il aurait pu être
+méfiant envers cette étrangère, ou se contenter de tolérer la présence de cette
+glaneuse en l’ignorant, il se préoccupe au contraire de son bien et de sécurité,
+et va jusqu’à échanger avec elle (2.8-13), et reconnaître sa valeur (2.11, 3.10-
+11).
+Il veille encore à respecter la priorité de celui qui avait aussi droit de rachat
+(4.1-8), mais présente la situation d’une façon qui met en avant la
+responsabilité vis-à-vis de Ruth, faisant tout ce qu’il peut pour qu’elle soit
+aussi respectée.
+## Une personne de valeur
+Le terme utilisé pour « riche » en 2.1 peut aussi être traduit « de valeur » : c’est
+d’ailleurs le même mot qui est utilisé pour Ruth en 3.11.
+Boaz était riche et puissant, mais c’était surtout quelqu’un « de valeur ».
+- Comment peut-il nous inspirer ?
+- Quel est mon souci de la justice ?
+- Comment est-ce que j’utilise les biens et les responsabilités qui me
+sont données pour le bien ?
+- Comment est-ce que je me montre attentif aux personnes qui
+m’entourent et à leurs situations ?
 
 # SUJETS DE PRIERE
-- Prions pour le quartier de l’Eglise et ses besoins.
-- Que le Seigneur nous conduise vers des projets qui nous
-permettent d’être en bénédiction pour le quartier.
-- Remettons à Dieu les CA dans leur travail d’étude des différentes
-pistes de bâtiments.
-- Mettons-nous à l’écoute de Dieu : qu’entend-on concernant la
-recherche d’un bâtiment ? les actions à court et moyen terme en
-ce sens ?
+- Prions pour notre responsabilité et notre attitude au travail, avec nos
+voisins et vis-à-vis de notre famille.
+- Que Dieu nous montre dans quels domaines et envers qui nous pouvons
+être généreux et partager nos ressources.
 
-<div class="container">
-<iframe src="https://www.youtube.com/embed/PGZHSwm1-s0"
-frameborder="0" allowfullscreen class="video"></iframe>
-</div>
-
-[Jour précédent - Mercredi 1](mercredi.md)-<>-
-[Jour suivant - Vendredi 3](vendredi.md)
+[Jour précédent - Mercredi 2](mercredi.md)-<>-
+[Jour suivant - Vendredi 4](vendredi.md)

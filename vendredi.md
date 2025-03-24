@@ -1,70 +1,78 @@
 # Vendredi 3
-**“Dieu a approuvé tous ces gens à cause de leur foi, et
-pourtant, aucun d’eux n’a reçu ce qu’il leur avait promis.
-C’est que Dieu avait prévu quelque chose de meilleur pour
-nous : ils ne devaient donc pas parvenir
-sans nous à la perfection.”
-(extrait de Héb 11 : 32-40)**
 
-On pourrait s’imaginer qu’en développant les mêmes caractéristiques
-de foi qu’Hénoc, Abraham ou Moïse, on vivra des expériences tout
-aussi extraordinaires.
+# RUTH (Ruth 2.8-3.11)
+A première vue, Ruth, une femme Moabite, était une candidate bien
+improbable pour donner son nom à un livre biblique. Mais Dieu a choisi
+d’utiliser sa détermination pour faire avancer son plan de rédemption :
+Si Ruth n’avait pas choisi de suivre Naomi, il n’y aurait pas eu grand-chose à
+raconter. Et si Ruth n’avait pas proposé d’aller glaner, l’histoire se serait vite
+arrêtée !
 
-Mais le contraste entre les versets 33 à 35 d’une part, et 36 à 38
-d’autre part, nous ramène à la réalité, parfois perturbante pour nous :
-« Dieu a approuvé tous ces gens à cause de leur foi » (v39, Semeur), et
-pourtant, ces vies de foi, toutes aussi belles et agréables à Dieu, ont
-conduit à des issues radicalement différentes.
+A travers l’ensemble du récit, Ruth est une femme d’action, courageuse, et
+pleine d’initiative, et ce sont de belles qualités que l’on peut admirer.
+Mais on voit surtout le cheminement d’une femme qui a choisi de se tourner
+vers Dieu. Les allusions à son parcours spirituel sont discrètes, nous n’avons
+pas tous les détails. Mais nous pouvons en voir plusieurs caractéristiques :
 
-En repensant à tous les exemples qui nous sont donnés dans ce
-chapitre, c’est bien l’attitude de foi de chacun qui doit nous inspirer.
-L’issue, elle, dépend de Dieu.
-Lorsqu’on voit Dieu agir de belle façon à travers notre Église, on se
-réjouit bien sûr !
-Mais ce n’est pas la preuve que notre foi était particulièrement forte,
-ou qu’on a été particulièrement performant.
-Et quand les résultats ne sont pas ceux qu’on espérait, ou lorsque les
-difficultés apparaissent, ce n’est pas la preuve qu’on a dû se tromper,
-ou manquer de foi.
-Bien sûr, remettons-nous régulièrement en question. Nous ne
-sommes certainement pas meilleurs qu’Abraham, Sara, Moïse ou
-David, qui ont failli plus d’une fois. Mais ce qui pour nous s’apparente
-à la réussite du projet n’est pas une récompense de foi.
+## Ruth est fidèle à son choix
+L’attachement de Ruth à Naomi semble avoir été un élément important dans
+sa décision de partir pour Bethléem, mais ce choix n’est pas simplement la
+conséquence d’un élan émotionnel.
+lle a pleinement conscience que sa décision est radicale et qu’elle l’engage
+pour le reste de la vie : changer de peuple, changer de Dieu.
+La suite du récit nous montre qu’elle reste fidèle à cet engagement, tant dans
+son soutien à Naomi que dans son attachement aux lois de son nouveau
+peuple. Boaz reconnaît en elle une femme de valeur (3.11).
+_ Dans quelle mesure suis-je fidèle à l’engagement que j’ai pris envers
+Dieu indépendamment des circonstances ?_
 
-Nous n’avançons pas pour autant complètement en aveugle.
+## Ruth est prête à apprendre
+Ruth ne change pas de personnalité en arrivant à Bethléem. Elle continue à
+prendre des initiatives, et c’est d’ailleurs elle qui parle à Boaz de la possibilité
+d’un rachat (3.9), en allant plus loin que ce que Naomi lui a proposé (3.4).
 
-La foi, c’est bien « l’assurance des choses qu’on espère » : les
-promesses de Dieu sont infaillibles, et surtout, nous connaissons,
-encore plus clairement que les croyants de l’Ancien Testament
-mentionnés dans ce chapitre, la fin de l’Histoire (v39-40).
-Mais la façon dont Dieu conduit les choses vers cet accomplissement
-peut nous surprendre.
+Mais elle a conscience d’avoir besoin des conseils de ses aînés, et elle se
+montre humble et prête à écouter.
+Dans ce contexte, on voit Boaz et Naomi qui l’accompagnent : ils lui suggèrent
+les comportements les plus adaptés, mais ils savent aussi l’encourager en
+notant sa fidélité et son soutien envers Naomi.
+Ils profitent aussi de leurs échanges pour l’inviter à voir Dieu à l’oeuvre dans
+sa vie : Boaz lui rappelle que c’est sous les ailes de l’Éternel qu’elle est venue
+se réfugier (2.12), Naomi lui fait voir la bonté de Dieu (2.20).
+Nous ne connaissons pas le détail des progrès dans la foi de Ruth, mais on
+peut voir que Dieu utilise ses expériences et les personnes qu’elle rencontre
+pour lui donner des occasions de mieux Le connaître.
 
-Alors, en construisant nos projets, avançons pas à pas par la foi, dans
-l’obéissance, dans la confiance, et sans crainte.
-Les résultats peuvent être bien plus extraordinaires que ce que nous
-pouvons même imaginer, et ils peuvent aussi parfois nous sembler
-moins éclatants que ce que nous aurions souhaité.
+_Sommes-nous toujours disposés à apprendre ?_
 
-Mais en toute chose, notre Dieu est maître de l’issue… et c’est
-tellement mieux ainsi !
-
-**Prenons le temps de remettre l’issue de nos projets à la
-souveraineté de Dieu, et demandons-lui de nous équiper pour
-accepter la part de difficulté qui peut y être associée.**
+Ruth a conscience de son besoin de grâce
+Les premières paroles adressées par Ruth à Boaz sont frappantes :
+**«Comment ai-je trouvé grâce à tes yeux pour que tu t’intéresses à moi, une
+étrangère ?»** (2.10)
+Pour nous qui avons accès à l’ensemble de la révélation du plan de Dieu, cela
+fait écho au salut offert à chacun, indépendamment de son origine.
+En tant que Moabite, Ruth n’aurait a priori pas dû rentrer dans le peuple de
+Dieu (Deutéronome 23.4). Mais à travers son rachat par Boaz, elle a pu non
+seulement y entrer, mais encore porter une descendance qui inclut le roi
+David, et surtout le Messie.
+Alors réjouissons-nous du rachat que nous avons chacun reçu en Jésus-Christ
+et qui nous permet de vivre une vie de foi et fructueuse pour l’Éternel, comme
+l’exemple de Ruth l’anticipe :
+**«Pour ceux qui sont unis à Jésus-Christ, ce qui importe, ce n’est pas d’être
+circoncis ou incirconcis, c’est d’avoir la foi, une foi qui agit par amour»**
+(Galates 5.6).
 
 # SUJETS DE PRIERE
-- Louons Dieu parce qu’il est maître de toute chose, et que son
-oeuvre s’accomplit.
-- Disons à Dieu notre désir de nous soumettre à sa volonté
-concernant nos projets de vie d’Eglise et de bâtiment.
-- Continuons de nous mettre à son écoute concernant ces projets
+- Prions pour les baptisés à venir et ceux récemment baptisés.
+- Prions pour notre cheminement dans la foi; Que Dieu affermisse notre foi
+et nous aide à progresser.
+- Demandons à Dieu de nous montrer comment rendre visible notre foi en
+paroles et en actes, individuellement et collectivement.
 
-<div class="container">
-<iframe src="https://www.youtube.com/embed/ZMfGoLcQc_A"
-frameborder="0" allowfullscreen class="video"></iframe>
-</div>
+# Aujourd'hui
+12h30 : Prière à l’église et
+par zoom
 
-[Jour précédent - Jeudi 2](jeudi.md)-<>-
-[Jour suivant - Samedi 4](samedi.md)
+[Jour précédent - Jeudi 3](jeudi.md)-<>-
+[Jour suivant - Samedi 5](samedi.md)
 

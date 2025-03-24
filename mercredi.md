@@ -1,76 +1,116 @@
-# Mercredi 18
-*“Par la foi, Abraham a obéi à l’appel de Dieu”.
-(extrait de Héb 11:8-19)*
+# Mercredi 2
 
-La foi conduit à l’obéissance : ce n’est sans doute pas la notion que
-nous préférons !
-D’autant plus que l’obéissance a été coûteuse pour Abraham :
-d’abord quitter la vie citadine à Ur pour un long périple en famille
-vers Hâran (Actes 7.2), puis à la mort de son père, repartir pour une
-vie nomade, « sans savoir où il allait » (v8).
-Mais cette notion d’obéissance replace nos réponses de foi dans le
-bon cadre : c’est Dieu qui appelle Abraham pour une mission
-particulière, et Abraham y répond en obéissant.
-Il ne s’agit donc pas d’imaginer un beau et grand projet, puis de
-chercher à faire le « plein de foi » pour l’accomplir.
-C’est bien Dieu qui appelle chacun, ou chaque Église, à des œuvres
-spécifiques.
-C’est parfois difficile, parce qu’il ne suffit pas de calquer ce qui a
-donné de bons résultats chez d’autres (même si faire preuve de bon
-sens, et s’appuyer sur les expériences des autres, a toute sa place, et
-fait partie du processus de discernement !).
-C’est aussi difficile parce que la voie à suivre n’est pas toujours facile
-à trouver, il faut parfois chercher pas à pas le bon chemin.
+# NAOMI (Ruth 1)
 
-**Alors demandons à Dieu de nous rendre ouverts aux projets
-spécifiques qu’il a formés pour le Drac.**
+“Comment continuer de croire alors que je souffre ? Y’a-t-il des raisons
+d’espérer alors que j’ai du mal à donner du sens à mes circonstances ?”
 
-Cette foi-obéissance d’Abraham et Sara n’a pas toujours été aussi
-ferme.
-Sara a douté de la promesse de Dieu (Gen 18.12). Ils ont parfois voulu
-accomplir les promesses de Dieu par leurs propres moyens en
-trouvant une solution humainement raisonnable (à cette époque)
-pour y arriver (Gen 16). Abraham a même parfois désobéi à Dieu pour
-anticiper des problèmes potentiels qui ne s’étaient pas encore
-produits (Gen 12, Gen 20).
-Cela nous encourage à rester humbles, et vigilants.
+Le personnage de Naomi vient nous rejoindre particulièrement au temps des
+épreuves : En l’espace de 5 versets, nous apprenons que Naomi vit une
+famine, déménage et va s’installer dans un pays étranger, puis perd à la suite
+son mari et ses 2 fils.
+Quelle terrible tragédie !
+Elle devient veuve, sans descendance, ni perspective d’avenir ou de soutien.
 
-**Alors demandons à Dieu de nous garder du doute, et de la
-tentation d’essayer d’accomplir les promesses de Dieu par nos
-moyens humains.**
+Est-elle responsable de ce qui lui arrive (à cause des choix de sa famille
+peut-être) ?
+Aucune explication ne nous est donnée de la part de l’auteur.
 
-Abraham est parti sans savoir où il allait (v8). Il ne savait pas non plus
-exactement comment Dieu allait délivrer Isaac, l’enfant de la
-promesse, lorsque Dieu lui a demandé de l’offrir en sacrifice (v17-19).
-Son obéissance était en partie « aveugle », mais elle n’était pas
-insensée.
-Abraham ne savait pas tout, mais il savait que Dieu était fidèle, et ne
-remettrait pas en cause ses promesses.
-Il comprenait aussi que sa vie de foi se plaçait dans un cadre bien
-plus grand, qui dépassait sa propre histoire.
-Lorsqu’il n’a vu qu’un accomplissement très partiel des promesses de
-Dieu à son égard, il a su voir plus loin et croire en leur
-accomplissement futur (v13).
-On ne sait pas exactement comment Abraham est parvenu à une
-telle connaissance de Dieu et de ses plans, mais on sait que sa
-relation avec Dieu était très proche, puisque la Bible parle plusieurs
-fois de lui comme étant « l’ami de Dieu » (2 Ch 20.7, Es 41.8, Jc 2.23).
+Mais la suite du livre va nous révéler à plusieurs reprises combien ces
+épreuves ont rendu amère Naomi :
+**“L’Eternel est intervenu contre moi (...) car le Tout-Puissant m’a beaucoup
+affligée. Je suis partie d’ici comblée, et l’Eternel m’y fait revenir les mains
+vides. Alors pourquoi m’appeler encore Naomi quand l’Eternel s’est prononcé
+contre moi et que le Tout-Puissant m’a plongée dans l’affliction ?”** (Ch1
+v.13/20-21)
 
-**Alors à l’image d’Abraham, passons du temps avec Dieu, et
-mettons-nous à son écoute.**
+Que nous apprend Naomi dans cette histoire ?
+
+## Vivre la souffrance
+La souffrance n’épargne aucun de nous.
+Et nous sommes bien démunis lorsque nous cherchons à donner du sens à
+nos épreuves.
+Peu importe depuis combien de temps nous sommes chrétiens ou le nombre
+de fois où nous avons expérimenté la fidélité de Dieu, nous pouvons nous
+demander si Dieu entend nos prières et pourquoi Il n’intervient pas.
+
+Comment Naomi vit-elle cela ?
+
+- Tout d’abord, Naomi exprime ce qu’elle ressent.
+Déception, tristesse, pleurs, amertume.
+Elle n’hésite pas à dire ses émotions. A ses belles-filles, puis aux femmes de
+Bethléem.
+
+Dieu accueille nos émotions. Il accueille nos tristesses et compatit à nos
+souffrances.
+Mais veillons à ce que nos émotions ne viennent pas définir notre identité,
+comme Naomi lorsqu’elle se fait appeler “Mara”.
+Apportons nos douleurs et nos incompréhensions à Dieu ; Lui qui a souffert
+jusqu’à la mort, Il sait ce que nous ressentons et nous pouvons le Lui dire.
+
+- Remarquons aussi que Naomi continue de mentionner l’Eternel dans ses
+prières ou ses conversations.
+Elle Le reconnaît comme Celui qui intervient, et même Celui qui est bon (Ch1
+v8). Mais pas pour elle.
+Est-ce que cela vous arrive aussi de croire que Dieu est bon mais pour les
+autres ? “Finalement, Dieu est-il réellement …..” ?
+Prenons garde aux mensonges qui viennent remplacer les vérités au sujet de
+Dieu.
+
+Apprenons à Lui faire confiance et à revenir à une vision juste de Sa personne
+en nous nourrissant de Sa Parole. Ne nous détournons pas de Lui, mais
+rappelons-nous ceci : Dieu compatit à nos faiblesses; Il est plein de grâce et
+de miséricorde; Il est le Dieu qui nous secourt, le Dieu de toute consolation, le
+Dieu souverain de nos situations.
+
+## Le témoignage dans la souffrance
+Malgré les circonstances difficiles par lesquelles elle passe, Naomi n’a pas
+abandonné son Dieu. Malgré son amertume, elle n’a pas cessé de parler de
+Lui.
+C’est un encouragement pour nous.
+Nous n’avons pas besoin d’être “parfait” ou dans de bonnes conditions pour
+être un témoin. Même au travers de nos moments de difficultés, Dieu peut
+nous utiliser pour Se révéler.
+
+Ruth a choisi de suivre Naomi et d’embrasser sa foi, alors même que Naomi
+était au fond du gouffre !
+**“Ton Dieu sera mon Dieu”** (Ch1 v.16).
+Quelle image de Dieu lui avait été donnée au travers de cette famille, pour
+qu’elle choisisse de quitter son pays et ses dieux pour aller servir l'Éternel en
+terre étrangère ?
+
+Même si nous ne comprenons pas, même avec notre foi chancelante et fragile,
+continuons de témoigner de notre confiance en Dieu dans les bons comme
+dans les mauvais moments.
+
 # SUJETS DE PRIERE
-- Prions que chacun puisse exercer avec joie les dons que Dieu lui
-a donnés.
-- Que Dieu prépare et dirige l’intégration de nouveaux
-responsables.
-- Mettons-nous à l’écoute de Dieu : qu’entend-on concernant des
-points sur lesquels nous devons plus particulièrement, en Eglise,
-progresser ? mettre l’accent ? développer ou démarrer des
-actions ?
-<div class="container">
-<iframe src="https://www.youtube.com/embed/3RHUq2vdc5A"
-frameborder="0" allowfullscreen class="video"></iframe>
-</div>
+- Prions pour ceux qui souffrent dans l’église ou parmi nos proches.
+- Prions que notre vision de Dieu dans les temps d’épreuve ne soit pas
+faussée par nos ressentis mais que Sa Parole vienne pleinement nous
+redire qui Il est vraiment.
+- Prions que notre vie soit un poteau indicateur sur la voie qui mène à Dieu,
+quelques soient les circonstances de nos vies.
 
-[Jour précédent - Mardi 17](mardi.md)-<>-
-[Jour suivant - Jeudi 19](jeudi.md)
+# Témoignage
+Lorsque j'ai reçu ma lettre d'expulsion de l'Office turc de l'immigration, je
+pensais à ce qui m'arriverait maintenant et à la punition qui me serait
+infligée à mon retour en Iran.
+Et j'ai dit : “Dieu, je suis satisfaite de ce que tu as prévu pour moi et je suis
+sûre que tu prévois le meilleur pour moi.”
+Jusqu'à ce que Dieu ait placé quelqu'un sur mon chemin qui m'a permis de
+traverser illégalement la frontière turque, et d'atteindre la France.
+Je croyais qu'un Dieu meilleur ferait pour moi les meilleures choses.
+C'est vrai que le chemin que j'ai parcouru a été difficile, j'ai marché
+longtemps, j'ai traversé des vallées, j'ai traversé des montagnes, mais j'ai
+cru en Dieu qui ne me quitterait pas. Dieu qui me fait dormir dans les vertes
+plaines.
+
+Le chemin que j'ai emprunté n'a pas été facile du tout et j'ai enduré de
+nombreuses difficultés, mais j'ai cru en Dieu tout comme Ruth croyait en
+Dieu, et elle n'a pas fait demi-tour, mais a avancé, et à la fin, Dieu l'a
+récompensée et elle est devenue la personne dont David est issu.
+
+L.
+
+[Jour précédent - Mardi 1er](mardi.md)-<>-
+[Jour suivant - Jeudi 3](jeudi.md)
