@@ -1,5 +1,8 @@
 # Lundi 31
 
+ <audio controls src="/resources/1sdp-lundi.m4a"></audio>
+ <audio controls src="/resources/2sdp-mardi.p3"></audio>
+
 ## Pourquoi étudier Ruth ?
 
 Lire Ruth, c’est choisir de s’intéresser à la Parole de Dieu qui, comme Paul le déclare, est “utile” pour notre vie chrétienne (2 Tim 3.16).
