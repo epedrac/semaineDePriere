@@ -1,5 +1,8 @@
 # Jeudi 3
 
+<audio controls src="/resources/4sdp-jeudi.mp3"></audio>
+
+
 ## BOAZ (Ruth 2.1-16 et 4.1-8)
 La première chose que l’on apprend sur Boaz est qu’il est «puissant et riche»
 (2.1), et dans la plupart des histoires, une telle description initiale n’augure

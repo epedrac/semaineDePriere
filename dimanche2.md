@@ -1,5 +1,9 @@
 # Dimanche 6
 
+
+<audio controls src="/resources/7sdp-dim.mp3"></audio>
+
+
 ## Le récit dans l’histoire du Salut (Ruth 4.9-22)
 
 Les habitants de Bethléem n’avaient certainement pas conscience de la façon

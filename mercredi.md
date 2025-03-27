@@ -1,5 +1,8 @@
 # Mercredi 2
 
+
+<audio controls src="/resources/3sdp-merc.m4a"></audio>
+
 # NAOMI (Ruth 1)
 
 “Comment continuer de croire alors que je souffre ? Y’a-t-il des raisons

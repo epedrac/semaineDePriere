@@ -1,4 +1,8 @@
 # Samedi 5
+
+
+<audio controls src="/resources/6sdp-samedi.mp3"></audio>
+
 # Les relations entre les personnages (Ruth 3)
 
 Les cinq premiers versets du livre de Ruth nous amènent au constat de la

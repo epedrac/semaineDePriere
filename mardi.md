@@ -1,4 +1,7 @@
 # Mardi 1er
+
+ <audio controls src="/resources/2sdp-mardi.mp3"></audio>
+ 
 # Le Dieu qui pourvoit
 
 Du début à la fin du livre de Ruth, Dieu pourvoit.

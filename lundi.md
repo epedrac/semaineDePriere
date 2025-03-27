@@ -1,7 +1,6 @@
 # Lundi 31
 
  <audio controls src="/resources/1sdp-lundi.m4a"></audio>
- <audio controls src="/resources/2sdp-mardi.p3"></audio>
 
 ## Pourquoi étudier Ruth ?
 

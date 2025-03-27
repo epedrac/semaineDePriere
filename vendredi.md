@@ -1,5 +1,8 @@
 # Vendredi 3
 
+<audio controls src="/resources/5sdp-vend.mp3"></audio>
+
+
 # RUTH (Ruth 2.8-3.11)
 A première vue, Ruth, une femme Moabite, était une candidate bien
 improbable pour donner son nom à un livre biblique. Mais Dieu a choisi
