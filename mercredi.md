@@ -77,5 +77,6 @@ voir dans notre vie, et fais mûrir en nous un fruit qui Te glorifie et
 édifie ceux qui nous entourent.
 - Garde-nous attachés à Toi. Que nos paroles, nos actions et notre
 amour reflètent le fruit de ton Esprit.
+
 [Jour précédent - Mardi](mardi.md)-<>-
 [Jour suivant - Jeudi](jeudi.md)

@@ -73,6 +73,7 @@ contempler Christ qui règne.
 - Louons Dieu pour la puissance qu’il met en œuvre en notre faveur !
 - Louons Jésus, qui règne dès aujourd’hui.
 - Prions Éphésiens 1.15-19 en l’appliquant à notre Église.
+
 # Aujourd'hui
 10h15 : Culte de louange suivi d’une agape et d’une balade
 

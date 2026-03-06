@@ -66,6 +66,7 @@ concrètement, pas seulement en paroles.
 pas.
 - Donne à notre communauté une unité et un amour fraternel qui
 témoigne de Toi, dans le quartier, auprès des autorités locales.
+
 # Aujourd'hui
 12h30 : Prière à l’église et par zoom et selon le
 secteur de travail

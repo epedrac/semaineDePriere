@@ -56,7 +56,7 @@ d’autres à grandir dans leur foi, de savoir partager au quotidien la
 vérité de l’Évangile avec amour.
 
 # Aujourd'hui 
-Matinée de prière créative
+- Matinée de prière créative
 intergénérationnelle
 
 [Jour précédent - Vendredi](vendredi.md)<br/>
