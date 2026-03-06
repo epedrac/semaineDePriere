@@ -1,119 +1,81 @@
-# Mercredi 2
+# Mercredi
 
+Lecture : Jean 15:1-8
 
-<audio controls src="/resources/3sdp-merc.m4a"></audio>
+Dans ce passage, Jésus se présente comme la vraie vigne, et Dieu le
+Père comme le vigneron, c'est-à-dire Celui qui supervise les saisons, la
+taille, et la maturation.
+Au travers l’image de la vigne, Il met en avant plusieurs principes
+essentiels de la croissance :
 
-# NAOMI (Ruth 1)
+## Des saisons nécessaires (v.2-3)
 
-“Comment continuer de croire alors que je souffre ? Y’a-t-il des raisons
-d’espérer alors que j’ai du mal à donner du sens à mes circonstances ?”
+La croissance passe par des saisons parfois difficiles.
+L’image de l’émondage nous rappelle que c’est un travail nécessaire de
+soin et d’attention de la part du vigneron, et non un rejet qui serait
+réalisé au “hasard”.
 
-Le personnage de Naomi vient nous rejoindre particulièrement au temps des
-épreuves : En l’espace de 5 versets, nous apprenons que Naomi vit une
-famine, déménage et va s’installer dans un pays étranger, puis perd à la suite
-son mari et ses 2 fils.
-Quelle terrible tragédie !
-Elle devient veuve, sans descendance, ni perspective d’avenir ou de soutien.
+Le vigneron coupe même ce qui porte déjà du fruit. Ces moments de
+“taille” préparent le fruit.
+Dieu utilise toutes les saisons de notre vie – y compris les périodes
+difficiles comme les pertes, les remises en question, les temps de
+ralentissements, ou les épreuves, – pour nous purifier et augmenter
+notre fécondité.
+> Suis-je prêt à accepter les moments où Dieu “élague”
+ma vie pour me faire grandir ?
+Quelles expériences par le passé m’ont semblé difficiles mais où je
+reconnais que Dieu m’a fait progresser spirituellement ?
 
-Est-elle responsable de ce qui lui arrive (à cause des choix de sa famille
-peut-être) ?
-Aucune explication ne nous est donnée de la part de l’auteur.
+# PRIERE 
+- Seigneur, aide-nous à accepter les saisons qui nous semblent arides
+ou difficiles. Aide-nous à voir qu’elles font partie de ton plan pour
+notre croissance et notre maturité.
+- Aide-nous à Te faire confiance et à persévérer dans ces moments
+d’épreuve.
 
-Mais la suite du livre va nous révéler à plusieurs reprises combien ces
-épreuves ont rendu amère Naomi :
-**“L’Eternel est intervenu contre moi (...) car le Tout-Puissant m’a beaucoup
-affligée. Je suis partie d’ici comblée, et l’Eternel m’y fait revenir les mains
-vides. Alors pourquoi m’appeler encore Naomi quand l’Eternel s’est prononcé
-contre moi et que le Tout-Puissant m’a plongée dans l’affliction ?”** (Ch1
-v.13/20-21)
+## Un processus lent et profond (v.4-6)
+La croissance n’est pas instantanée.
+Comme le sarment qui grandit progressivement sur la vigne et ne
+produit pas de fruit immédiatement, notre cœur mûrit dans la patience,
+et notre vie spirituelle se développe progressivement.
+Le mot “demeurer” implique constance et persévérance.
+La croissance ne vient pas d’élans spirituels ponctuels, mais d’une
+fidélité quotidienne.
 
-Que nous apprend Naomi dans cette histoire ?
+Mais cette croissance exige une dépendance au Christ quotidienne.
+Comme une branche ne peut porter du fruit si elle est séparée de la
+vigne, nous ne pouvons pas croître ou produire du fruit spirituel en
+dehors de Christ.
+La branche ne produit pas de vie par elle-même ; elle la reçoit par la
+sève. Si elle se détache du cep, elle se dessèche progressivement et
+devient stérile.
+> Que puis-je faire quotidiennement pour développer
+ma dépendance à Christ ?
 
-## Vivre la souffrance
-La souffrance n’épargne aucun de nous.
-Et nous sommes bien démunis lorsque nous cherchons à donner du sens à
-nos épreuves.
-Peu importe depuis combien de temps nous sommes chrétiens ou le nombre
-de fois où nous avons expérimenté la fidélité de Dieu, nous pouvons nous
-demander si Dieu entend nos prières et pourquoi Il n’intervient pas.
+> Y a-t-il des signes de dessèchement dans ma vie ?
 
-Comment Naomi vit-elle cela ?
+# PRIERE
+- Seigneur, aide-nous à ne pas nous décourager quand les résultats
+ne sont pas visibles immédiatement. Rappelle-nous que chaque jour
+passé en Toi nous fait grandir, même en silence.
+- Aide-nous à nourrir notre relation avec Toi au quotidien par la prière,
+la méditation et l’écoute de ta Parole.
 
-- Tout d’abord, Naomi exprime ce qu’elle ressent.
-Déception, tristesse, pleurs, amertume.
-Elle n’hésite pas à dire ses émotions. A ses belles-filles, puis aux femmes de
-Bethléem.
+## Un fruit qui dépend de la connexion (v.7-8)
+La croissance ne vient pas de nos efforts, mais de notre connexion à
+Jésus.
+Et le but ultime de cette croissance, ce n’est pas la performance.
+C’est la fécondité pour la gloire de Dieu, et un fruit qui transforme notre
+vie et celle des autres.
 
-Dieu accueille nos émotions. Il accueille nos tristesses et compatit à nos
-souffrances.
-Mais veillons à ce que nos émotions ne viennent pas définir notre identité,
-comme Naomi lorsqu’elle se fait appeler “Mara”.
-Apportons nos douleurs et nos incompréhensions à Dieu ; Lui qui a souffert
-jusqu’à la mort, Il sait ce que nous ressentons et nous pouvons le Lui dire.
+> Quels fruits visibles apparaissent dans ma vie ?
+Est-ce que Dieu est glorifié au travers de ma vie ?
 
-- Remarquons aussi que Naomi continue de mentionner l’Eternel dans ses
-prières ou ses conversations.
-Elle Le reconnaît comme Celui qui intervient, et même Celui qui est bon (Ch1
-v8). Mais pas pour elle.
-Est-ce que cela vous arrive aussi de croire que Dieu est bon mais pour les
-autres ? “Finalement, Dieu est-il réellement …..” ?
-Prenons garde aux mensonges qui viennent remplacer les vérités au sujet de
-Dieu.
-
-Apprenons à Lui faire confiance et à revenir à une vision juste de Sa personne
-en nous nourrissant de Sa Parole. Ne nous détournons pas de Lui, mais
-rappelons-nous ceci : Dieu compatit à nos faiblesses; Il est plein de grâce et
-de miséricorde; Il est le Dieu qui nous secourt, le Dieu de toute consolation, le
-Dieu souverain de nos situations.
-
-## Le témoignage dans la souffrance
-Malgré les circonstances difficiles par lesquelles elle passe, Naomi n’a pas
-abandonné son Dieu. Malgré son amertume, elle n’a pas cessé de parler de
-Lui.
-C’est un encouragement pour nous.
-Nous n’avons pas besoin d’être “parfait” ou dans de bonnes conditions pour
-être un témoin. Même au travers de nos moments de difficultés, Dieu peut
-nous utiliser pour Se révéler.
-
-Ruth a choisi de suivre Naomi et d’embrasser sa foi, alors même que Naomi
-était au fond du gouffre !
-**“Ton Dieu sera mon Dieu”** (Ch1 v.16).
-Quelle image de Dieu lui avait été donnée au travers de cette famille, pour
-qu’elle choisisse de quitter son pays et ses dieux pour aller servir l'Éternel en
-terre étrangère ?
-
-Même si nous ne comprenons pas, même avec notre foi chancelante et fragile,
-continuons de témoigner de notre confiance en Dieu dans les bons comme
-dans les mauvais moments.
-
-# SUJETS DE PRIERE
-- Prions pour ceux qui souffrent dans l’église ou parmi nos proches.
-- Prions que notre vision de Dieu dans les temps d’épreuve ne soit pas
-faussée par nos ressentis mais que Sa Parole vienne pleinement nous
-redire qui Il est vraiment.
-- Prions que notre vie soit un poteau indicateur sur la voie qui mène à Dieu,
-quelques soient les circonstances de nos vies.
-
-# Témoignage
-Lorsque j'ai reçu ma lettre d'expulsion de l'Office turc de l'immigration, je
-pensais à ce qui m'arriverait maintenant et à la punition qui me serait
-infligée à mon retour en Iran.
-Et j'ai dit : “Dieu, je suis satisfaite de ce que tu as prévu pour moi et je suis
-sûre que tu prévois le meilleur pour moi.”
-Jusqu'à ce que Dieu ait placé quelqu'un sur mon chemin qui m'a permis de
-traverser illégalement la frontière turque, et d'atteindre la France.
-Je croyais qu'un Dieu meilleur ferait pour moi les meilleures choses.
-C'est vrai que le chemin que j'ai parcouru a été difficile, j'ai marché
-longtemps, j'ai traversé des vallées, j'ai traversé des montagnes, mais j'ai
-cru en Dieu qui ne me quitterait pas. Dieu qui me fait dormir dans les vertes
-plaines.
-
-Le chemin que j'ai emprunté n'a pas été facile du tout et j'ai enduré de
-nombreuses difficultés, mais j'ai cru en Dieu tout comme Ruth croyait en
-Dieu, et elle n'a pas fait demi-tour, mais a avancé, et à la fin, Dieu l'a
-récompensée et elle est devenue la personne dont David est issu.
-
-L.
-
-[Jour précédent - Mardi 1er](mardi.md)-<>-
-[Jour suivant - Jeudi 3](jeudi.md)
+# PRIERE
+- Seigneur, garde-nous de l’orgueil des “résultats” que nous pouvons
+voir dans notre vie, et fais mûrir en nous un fruit qui Te glorifie et
+édifie ceux qui nous entourent.
+- Garde-nous attachés à Toi. Que nos paroles, nos actions et notre
+amour reflètent le fruit de ton Esprit.
+[Jour précédent - Mardi](mardi.md)-<>-
+[Jour suivant - Jeudi](jeudi.md)

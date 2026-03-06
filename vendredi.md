@@ -1,81 +1,66 @@
-# Vendredi 3
+# Vendredi
 
-<audio controls src="/resources/5sdp-vend.mp3"></audio>
+Lecture : Ephésiens 4:7-13
 
+Après avoir insisté sur l’unité de l’Église, Paul va rappeler que cette
+unité se vit dans la diversité, et que cette diversité est nécessaire à la
+construction de l’Eglise : on ne peut pas construire un beau bâtiment si
+on ne dispose que d’un seul type de matériau, et on ne peut pas avoir
+un corps humain qui fonctionne si tous les organes sont identiques.
 
-# RUTH (Ruth 2.8-3.11)
-A première vue, Ruth, une femme Moabite, était une candidate bien
-improbable pour donner son nom à un livre biblique. Mais Dieu a choisi
-d’utiliser sa détermination pour faire avancer son plan de rédemption :
-Si Ruth n’avait pas choisi de suivre Naomi, il n’y aurait pas eu grand-chose à
-raconter. Et si Ruth n’avait pas proposé d’aller glaner, l’histoire se serait vite
-arrêtée !
+## Chacun est un don (v.7)
 
-A travers l’ensemble du récit, Ruth est une femme d’action, courageuse, et
-pleine d’initiative, et ce sont de belles qualités que l’on peut admirer.
-Mais on voit surtout le cheminement d’une femme qui a choisi de se tourner
-vers Dieu. Les allusions à son parcours spirituel sont discrètes, nous n’avons
-pas tous les détails. Mais nous pouvons en voir plusieurs caractéristiques :
+Au chapitre précédent (3.7), Paul a expliqué qu’il a reçu, par la grâce de
+Dieu, le don d’être serviteur de l’Évangile. Il nous dit ici que de la même
+façon, Dieu donne à chacun ce dont il a besoin pour jouer son rôle dans
+le corps de Christ.
+> Pensons à plusieurs personnes dans l’Église et à la façon dont Dieu
+les a équipées de façon très différente pour Le servir.
+Est-ce que j’utilise ce que Dieu m’a donné pour jouer mon rôle dans le
+corps de Christ ?
 
-## Ruth est fidèle à son choix
-L’attachement de Ruth à Naomi semble avoir été un élément important dans
-sa décision de partir pour Bethléem, mais ce choix n’est pas simplement la
-conséquence d’un élan émotionnel.
-lle a pleinement conscience que sa décision est radicale et qu’elle l’engage
-pour le reste de la vie : changer de peuple, changer de Dieu.
-La suite du récit nous montre qu’elle reste fidèle à cet engagement, tant dans
-son soutien à Naomi que dans son attachement aux lois de son nouveau
-peuple. Boaz reconnaît en elle une femme de valeur (3.11).
-_ Dans quelle mesure suis-je fidèle à l’engagement que j’ai pris envers
-Dieu indépendamment des circonstances ?_
+# PRIERE
+- Louons Dieu pour la diversité des personnes qu’il donne à son
+Église.
+- Prions que nous sachions nous mettre au service de Dieu, avec les
+dons qu’il nous a donnés.
 
-## Ruth est prête à apprendre
-Ruth ne change pas de personnalité en arrivant à Bethléem. Elle continue à
-prendre des initiatives, et c’est d’ailleurs elle qui parle à Boaz de la possibilité
-d’un rachat (3.9), en allant plus loin que ce que Naomi lui a proposé (3.4).
+## Christ règne aujourd’hui sur l’Eglise (v8-10)
+Paul ne manque jamais une occasion de revenir sur l’œuvre de Christ.
+Ici, il cite le Psaume 68 et l’applique à Christ en rappelant son parcours
+: d’abord d’abaissement sur Terre, puis d’exaltation et de victoire sur la
+mort. C’est parce qu’il a suivi ce chemin qu’il règne aujourd’hui sur tout
+l’univers, et donc sur l’Église. Il a tout pouvoir et toute autorité,
+notamment pour équiper l’Église comme il le souhaite.
+> Méditons cet abaissement, puis l’élévation de Christ.
 
-Mais elle a conscience d’avoir besoin des conseils de ses aînés, et elle se
-montre humble et prête à écouter.
-Dans ce contexte, on voit Boaz et Naomi qui l’accompagnent : ils lui suggèrent
-les comportements les plus adaptés, mais ils savent aussi l’encourager en
-notant sa fidélité et son soutien envers Naomi.
-Ils profitent aussi de leurs échanges pour l’inviter à voir Dieu à l’oeuvre dans
-sa vie : Boaz lui rappelle que c’est sous les ailes de l’Éternel qu’elle est venue
-se réfugier (2.12), Naomi lui fait voir la bonté de Dieu (2.20).
-Nous ne connaissons pas le détail des progrès dans la foi de Ruth, mais on
-peut voir que Dieu utilise ses expériences et les personnes qu’elle rencontre
-pour lui donner des occasions de mieux Le connaître.
+# PRIERE
+- Louons le Seigneur Jésus en nous souvenant de son œuvre et du
+fait qu’il règne aujourd’hui !
 
-_Sommes-nous toujours disposés à apprendre ?_
+## L’Eglise et la croissance (v11-13)
+Ces versets montrent à la fois le rôle de chaque chrétien, et aussi le
+rôle plus spécifique des responsables : former les chrétiens pour le
+service pour permettre la croissance de l’Église et de chacun.
 
-Ruth a conscience de son besoin de grâce
-Les premières paroles adressées par Ruth à Boaz sont frappantes :
-**«Comment ai-je trouvé grâce à tes yeux pour que tu t’intéresses à moi, une
-étrangère ?»** (2.10)
-Pour nous qui avons accès à l’ensemble de la révélation du plan de Dieu, cela
-fait écho au salut offert à chacun, indépendamment de son origine.
-En tant que Moabite, Ruth n’aurait a priori pas dû rentrer dans le peuple de
-Dieu (Deutéronome 23.4). Mais à travers son rachat par Boaz, elle a pu non
-seulement y entrer, mais encore porter une descendance qui inclut le roi
-David, et surtout le Messie.
-Alors réjouissons-nous du rachat que nous avons chacun reçu en Jésus-Christ
-et qui nous permet de vivre une vie de foi et fructueuse pour l’Éternel, comme
-l’exemple de Ruth l’anticipe :
-**«Pour ceux qui sont unis à Jésus-Christ, ce qui importe, ce n’est pas d’être
-circoncis ou incirconcis, c’est d’avoir la foi, une foi qui agit par amour»**
-(Galates 5.6).
+En relisant les versets 12 et 13, méditons la façon dont la croissance de
+l’Église et la croissance spirituelle individuelle sont liées. (Nous
+reviendrons demain plus en détail sur la notion de maturité spirituelle
+au verset 13).
+> Y a-t-il un service dans l’Église auquel je souhaiterais être formé,
+pour servir à l’édification de l’Église ?
 
-# SUJETS DE PRIERE
-- Prions pour les baptisés à venir et ceux récemment baptisés.
-- Prions pour notre cheminement dans la foi; Que Dieu affermisse notre foi
-et nous aide à progresser.
-- Demandons à Dieu de nous montrer comment rendre visible notre foi en
-paroles et en actes, individuellement et collectivement.
+# PRIERE
+- Remercions Dieu pour les personnes qui nous ont formés et aidés à
+grandir spirituellement.
+- Prions pour les responsables : de l’Église au Drac, au niveau de la
+Pastorale, de l’union d’Églises CAEF, du CNEF.
+- Prions pour que de nouvelles personnes puissent se joindre aux
+différentes équipes de service dans l’Église.
+- Prions que toutes les activités de l’Église et les services des uns et
+des autres servent à la croissance de l’Église, et à la croissance
+spirituelle de chacun.
 
-# Aujourd'hui
-12h30 : Prière à l’église et
-par zoom
-
-[Jour précédent - Jeudi 3](jeudi.md)-<>-
-[Jour suivant - Samedi 5](samedi.md)
+[Jour précédent - Jeudi](jeudi.md)-<>-
+[Jour suivant - Samedi](samedi.md)
 
