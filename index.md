@@ -1,4 +1,4 @@
-## Ruth, Vivre la providence de Dieu dans le quotidien
+## Appelés Ensemble à grandir
 
 ![alt text](images/SemaineDePriere.png "Semaine de priere")
 
